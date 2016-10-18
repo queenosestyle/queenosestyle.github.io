@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73208-le-rina-ruslana.html"><img src="//static.msromantic.com/172396/le-rina-ruslana.jpg" alt="Le Rina Ruslana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73208-le-rina-ruslana.html"><img src="//static.msromantic.com/172396/le-rina-ruslana.jpg" alt="Le Rina Ruslana" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73208-le-rina-ruslana.html"><img src="//static.msromantic.com/172395/le-rina-ruslana.jpg" alt="Le Rina Ruslana" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73208-le-rina-ruslana.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73208-le-rina-ruslana.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73208-le-rina-ruslana.html"><img src="//static.msromantic.com/172395/le-rina-ruslana.jpg" alt="Le Rina Ruslana" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73208-le-rina-ruslana.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73208-le-rina-ruslana.html)

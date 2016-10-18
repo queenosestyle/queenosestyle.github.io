@@ -9,7 +9,7 @@ tags: [Affinity Collection 2015]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2015/72431-affinity-astrid.html"><img src="//static.msromantic.com/170254/affinity-astrid.jpg" alt="Affinity Astrid" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2015/72431-affinity-astrid.html"><img src="//static.msromantic.com/170254/affinity-astrid.jpg" alt="Affinity Astrid" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity-collection-2015/72431-affinity-astrid.html](https://www.readybrides.com/en/affinity-collection-2015/72431-affinity-astrid.html)
+Buy it: [https://www.antebrands.com/en/affinity-collection-2015/72431-affinity-astrid.html](https://www.antebrands.com/en/affinity-collection-2015/72431-affinity-astrid.html)

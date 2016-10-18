@@ -9,7 +9,7 @@ tags: [Affinity Collection 2015]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2015/72426-affinity-anita.html"><img src="//static.msromantic.com/170246/affinity-anita.jpg" alt="Affinity Anita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2015/72426-affinity-anita.html"><img src="//static.msromantic.com/170246/affinity-anita.jpg" alt="Affinity Anita" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/affinity-collection-2015/72426-affinity-anita.html"><img src="//static.msromantic.com/170245/affinity-anita.jpg" alt="Affinity Anita" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/affinity-collection-2015/72426-affinity-anita.html](https://www.readybrides.com/en/affinity-collection-2015/72426-affinity-anita.html)
+<!-- break --><a href="https://www.antebrands.com/en/affinity-collection-2015/72426-affinity-anita.html"><img src="//static.msromantic.com/170245/affinity-anita.jpg" alt="Affinity Anita" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/affinity-collection-2015/72426-affinity-anita.html](https://www.antebrands.com/en/affinity-collection-2015/72426-affinity-anita.html)

@@ -9,8 +9,8 @@ tags: [Terani Short Dresses]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/terani-short-dresses/75177-terani-short-dresses-style-151c0237.html"><img src="//static.msromantic.com/177589/terani-short-dresses-style-151c0237.jpg" alt="Terani Short Dresses Style 151C0237" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-short-dresses/75177-terani-short-dresses-style-151c0237.html"><img src="//static.msromantic.com/177589/terani-short-dresses-style-151c0237.jpg" alt="Terani Short Dresses Style 151C0237" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/terani-short-dresses/75177-terani-short-dresses-style-151c0237.html"><img src="//static.msromantic.com/177590/terani-short-dresses-style-151c0237.jpg" alt="Terani Short Dresses Style 151C0237" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/terani-short-dresses/75177-terani-short-dresses-style-151c0237.html"><img src="//static.msromantic.com/177588/terani-short-dresses-style-151c0237.jpg" alt="Terani Short Dresses Style 151C0237" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/terani-short-dresses/75177-terani-short-dresses-style-151c0237.html](https://www.readybrides.com/en/terani-short-dresses/75177-terani-short-dresses-style-151c0237.html)
+<!-- break --><a href="https://www.antebrands.com/en/terani-short-dresses/75177-terani-short-dresses-style-151c0237.html"><img src="//static.msromantic.com/177590/terani-short-dresses-style-151c0237.jpg" alt="Terani Short Dresses Style 151C0237" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-short-dresses/75177-terani-short-dresses-style-151c0237.html"><img src="//static.msromantic.com/177588/terani-short-dresses-style-151c0237.jpg" alt="Terani Short Dresses Style 151C0237" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/terani-short-dresses/75177-terani-short-dresses-style-151c0237.html](https://www.antebrands.com/en/terani-short-dresses/75177-terani-short-dresses-style-151c0237.html)

@@ -9,7 +9,7 @@ tags: [Affinity Collection 2014]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2014/72438-affinity-bonnie.html"><img src="//static.msromantic.com/170268/affinity-bonnie.jpg" alt="Affinity Bonnie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2014/72438-affinity-bonnie.html"><img src="//static.msromantic.com/170268/affinity-bonnie.jpg" alt="Affinity Bonnie" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity-collection-2014/72438-affinity-bonnie.html](https://www.readybrides.com/en/affinity-collection-2014/72438-affinity-bonnie.html)
+Buy it: [https://www.antebrands.com/en/affinity-collection-2014/72438-affinity-bonnie.html](https://www.antebrands.com/en/affinity-collection-2014/72438-affinity-bonnie.html)

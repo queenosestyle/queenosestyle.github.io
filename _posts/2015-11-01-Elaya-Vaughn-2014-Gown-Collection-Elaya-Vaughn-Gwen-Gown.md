@@ -9,7 +9,7 @@ tags: [Elaya Vaughn 2014 Gown Collection]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/elaya-vaughn-2014-gown-collection/73037-elaya-vaughn-gwen-gown.html"><img src="//static.msromantic.com/172053/elaya-vaughn-gwen-gown.jpg" alt="Elaya Vaughn Gwen Gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/elaya-vaughn-2014-gown-collection/73037-elaya-vaughn-gwen-gown.html"><img src="//static.msromantic.com/172053/elaya-vaughn-gwen-gown.jpg" alt="Elaya Vaughn Gwen Gown" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/elaya-vaughn-2014-gown-collection/73037-elaya-vaughn-gwen-gown.html"><img src="//static.msromantic.com/172052/elaya-vaughn-gwen-gown.jpg" alt="Elaya Vaughn Gwen Gown" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/elaya-vaughn-2014-gown-collection/73037-elaya-vaughn-gwen-gown.html](https://www.readybrides.com/en/elaya-vaughn-2014-gown-collection/73037-elaya-vaughn-gwen-gown.html)
+<!-- break --><a href="https://www.antebrands.com/en/elaya-vaughn-2014-gown-collection/73037-elaya-vaughn-gwen-gown.html"><img src="//static.msromantic.com/172052/elaya-vaughn-gwen-gown.jpg" alt="Elaya Vaughn Gwen Gown" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/elaya-vaughn-2014-gown-collection/73037-elaya-vaughn-gwen-gown.html](https://www.antebrands.com/en/elaya-vaughn-2014-gown-collection/73037-elaya-vaughn-gwen-gown.html)

@@ -9,7 +9,7 @@ tags: [Affinity]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity/71731-affinity-bridal-gowns-joyce.html"><img src="//static.msromantic.com/168345/affinity-bridal-gowns-joyce.jpg" alt="Affinity Bridal Gowns Joyce" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity/71731-affinity-bridal-gowns-joyce.html"><img src="//static.msromantic.com/168345/affinity-bridal-gowns-joyce.jpg" alt="Affinity Bridal Gowns Joyce" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity/71731-affinity-bridal-gowns-joyce.html](https://www.readybrides.com/en/affinity/71731-affinity-bridal-gowns-joyce.html)
+Buy it: [https://www.antebrands.com/en/affinity/71731-affinity-bridal-gowns-joyce.html](https://www.antebrands.com/en/affinity/71731-affinity-bridal-gowns-joyce.html)

@@ -9,7 +9,7 @@ tags: [Affinity Collection 2015]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2015/72432-affinity-autumn.html"><img src="//static.msromantic.com/170255/affinity-autumn.jpg" alt="Affinity Autumn" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2015/72432-affinity-autumn.html"><img src="//static.msromantic.com/170255/affinity-autumn.jpg" alt="Affinity Autumn" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity-collection-2015/72432-affinity-autumn.html](https://www.readybrides.com/en/affinity-collection-2015/72432-affinity-autumn.html)
+Buy it: [https://www.antebrands.com/en/affinity-collection-2015/72432-affinity-autumn.html](https://www.antebrands.com/en/affinity-collection-2015/72432-affinity-autumn.html)

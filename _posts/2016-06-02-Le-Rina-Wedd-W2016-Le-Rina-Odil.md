@@ -9,8 +9,8 @@ tags: [Le Rina Wedd W2016]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2016/73251-le-rina-odil.html"><img src="//static.msromantic.com/172518/le-rina-odil.jpg" alt="Le Rina Odil" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2016/73251-le-rina-odil.html"><img src="//static.msromantic.com/172518/le-rina-odil.jpg" alt="Le Rina Odil" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2016/73251-le-rina-odil.html"><img src="//static.msromantic.com/172519/le-rina-odil.jpg" alt="Le Rina Odil" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2016/73251-le-rina-odil.html"><img src="//static.msromantic.com/172517/le-rina-odil.jpg" alt="Le Rina Odil" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2016/73251-le-rina-odil.html](https://www.readybrides.com/en/le-rina-wedd-w2016/73251-le-rina-odil.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2016/73251-le-rina-odil.html"><img src="//static.msromantic.com/172519/le-rina-odil.jpg" alt="Le Rina Odil" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2016/73251-le-rina-odil.html"><img src="//static.msromantic.com/172517/le-rina-odil.jpg" alt="Le Rina Odil" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2016/73251-le-rina-odil.html](https://www.antebrands.com/en/le-rina-wedd-w2016/73251-le-rina-odil.html)

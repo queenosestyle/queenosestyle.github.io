@@ -9,7 +9,7 @@ tags: [Adrianna Papell]
 Just **$130.00**
 ### 
 
-<a href="https://www.readybrides.com/en/adrianna-papell/75750-adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.html"><img src="//static.msromantic.com/179009/adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.jpg" alt="Adrianna Papell Embellished Waist Tab Metallic Jacquard Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adrianna-papell/75750-adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.html"><img src="//static.msromantic.com/179009/adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.jpg" alt="Adrianna Papell Embellished Waist Tab Metallic Jacquard Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adrianna-papell/75750-adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.html"><img src="//static.msromantic.com/179008/adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.jpg" alt="Adrianna Papell Embellished Waist Tab Metallic Jacquard Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adrianna-papell/75750-adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.html](https://www.readybrides.com/en/adrianna-papell/75750-adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/adrianna-papell/75750-adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.html"><img src="//static.msromantic.com/179008/adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.jpg" alt="Adrianna Papell Embellished Waist Tab Metallic Jacquard Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adrianna-papell/75750-adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.html](https://www.antebrands.com/en/adrianna-papell/75750-adrianna-papell-embellished-waist-tab-metallic-jacquard-dress.html)

@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73178-le-rina-betani.html"><img src="//static.msromantic.com/172339/le-rina-betani.jpg" alt="Le Rina Betani" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73178-le-rina-betani.html"><img src="//static.msromantic.com/172339/le-rina-betani.jpg" alt="Le Rina Betani" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73178-le-rina-betani.html"><img src="//static.msromantic.com/172338/le-rina-betani.jpg" alt="Le Rina Betani" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73178-le-rina-betani.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73178-le-rina-betani.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73178-le-rina-betani.html"><img src="//static.msromantic.com/172338/le-rina-betani.jpg" alt="Le Rina Betani" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73178-le-rina-betani.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73178-le-rina-betani.html)

@@ -9,7 +9,7 @@ tags: [Le Rina Night N2015]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-night-n2015/73134-le-rina-milli-dlinnaya.html"><img src="//static.msromantic.com/172253/le-rina-milli-dlinnaya.jpg" alt="Le Rina Milli ( длинная)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-night-n2015/73134-le-rina-milli-dlinnaya.html"><img src="//static.msromantic.com/172253/le-rina-milli-dlinnaya.jpg" alt="Le Rina Milli ( длинная)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-night-n2015/73134-le-rina-milli-dlinnaya.html](https://www.readybrides.com/en/le-rina-night-n2015/73134-le-rina-milli-dlinnaya.html)
+Buy it: [https://www.antebrands.com/en/le-rina-night-n2015/73134-le-rina-milli-dlinnaya.html](https://www.antebrands.com/en/le-rina-night-n2015/73134-le-rina-milli-dlinnaya.html)

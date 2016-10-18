@@ -9,7 +9,7 @@ tags: [Adrianna Papell]
 Just **$199.00**
 ### 
 
-<a href="https://www.readybrides.com/en/adrianna-papell/75612-adrianna-papell-lace-and-sequin-cocktail.html"><img src="//static.msromantic.com/178715/adrianna-papell-lace-and-sequin-cocktail.jpg" alt="Adrianna Papell Lace and Sequin Cocktail" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adrianna-papell/75612-adrianna-papell-lace-and-sequin-cocktail.html"><img src="//static.msromantic.com/178715/adrianna-papell-lace-and-sequin-cocktail.jpg" alt="Adrianna Papell Lace and Sequin Cocktail" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adrianna-papell/75612-adrianna-papell-lace-and-sequin-cocktail.html"><img src="//static.msromantic.com/178714/adrianna-papell-lace-and-sequin-cocktail.jpg" alt="Adrianna Papell Lace and Sequin Cocktail" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adrianna-papell/75612-adrianna-papell-lace-and-sequin-cocktail.html](https://www.readybrides.com/en/adrianna-papell/75612-adrianna-papell-lace-and-sequin-cocktail.html)
+<!-- break --><a href="https://www.antebrands.com/en/adrianna-papell/75612-adrianna-papell-lace-and-sequin-cocktail.html"><img src="//static.msromantic.com/178714/adrianna-papell-lace-and-sequin-cocktail.jpg" alt="Adrianna Papell Lace and Sequin Cocktail" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adrianna-papell/75612-adrianna-papell-lace-and-sequin-cocktail.html](https://www.antebrands.com/en/adrianna-papell/75612-adrianna-papell-lace-and-sequin-cocktail.html)

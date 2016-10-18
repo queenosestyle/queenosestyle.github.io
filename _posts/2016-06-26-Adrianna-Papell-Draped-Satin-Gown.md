@@ -9,7 +9,7 @@ tags: [Adrianna Papell]
 Just **$249.00**
 ### 
 
-<a href="https://www.readybrides.com/en/adrianna-papell/75610-adrianna-papell-draped-satin-gown.html"><img src="//static.msromantic.com/178710/adrianna-papell-draped-satin-gown.jpg" alt="Adrianna Papell Draped Satin Gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adrianna-papell/75610-adrianna-papell-draped-satin-gown.html"><img src="//static.msromantic.com/178710/adrianna-papell-draped-satin-gown.jpg" alt="Adrianna Papell Draped Satin Gown" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adrianna-papell/75610-adrianna-papell-draped-satin-gown.html"><img src="//static.msromantic.com/178709/adrianna-papell-draped-satin-gown.jpg" alt="Adrianna Papell Draped Satin Gown" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adrianna-papell/75610-adrianna-papell-draped-satin-gown.html](https://www.readybrides.com/en/adrianna-papell/75610-adrianna-papell-draped-satin-gown.html)
+<!-- break --><a href="https://www.antebrands.com/en/adrianna-papell/75610-adrianna-papell-draped-satin-gown.html"><img src="//static.msromantic.com/178709/adrianna-papell-draped-satin-gown.jpg" alt="Adrianna Papell Draped Satin Gown" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adrianna-papell/75610-adrianna-papell-draped-satin-gown.html](https://www.antebrands.com/en/adrianna-papell/75610-adrianna-papell-draped-satin-gown.html)

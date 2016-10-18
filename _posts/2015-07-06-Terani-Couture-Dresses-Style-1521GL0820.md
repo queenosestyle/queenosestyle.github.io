@@ -9,7 +9,7 @@ tags: [Terani Couture Dresses]
 Just **$939.99**
 ### 
 
-<a href="https://www.readybrides.com/en/terani-couture-dresses/75254-terani-couture-dresses-style-1521gl0820.html"><img src="//static.msromantic.com/177807/terani-couture-dresses-style-1521gl0820.jpg" alt="Terani Couture Dresses Style 1521GL0820" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-couture-dresses/75254-terani-couture-dresses-style-1521gl0820.html"><img src="//static.msromantic.com/177807/terani-couture-dresses-style-1521gl0820.jpg" alt="Terani Couture Dresses Style 1521GL0820" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/terani-couture-dresses/75254-terani-couture-dresses-style-1521gl0820.html](https://www.readybrides.com/en/terani-couture-dresses/75254-terani-couture-dresses-style-1521gl0820.html)
+Buy it: [https://www.antebrands.com/en/terani-couture-dresses/75254-terani-couture-dresses-style-1521gl0820.html](https://www.antebrands.com/en/terani-couture-dresses/75254-terani-couture-dresses-style-1521gl0820.html)

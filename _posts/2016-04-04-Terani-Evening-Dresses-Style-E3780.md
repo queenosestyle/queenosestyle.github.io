@@ -9,8 +9,8 @@ tags: [Terani Evening Dresses]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/terani-evening-dresses/75060-terani-evening-dresses-style-e3780.html"><img src="//static.msromantic.com/177232/terani-evening-dresses-style-e3780.jpg" alt="Terani Evening Dresses Style E3780" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-evening-dresses/75060-terani-evening-dresses-style-e3780.html"><img src="//static.msromantic.com/177232/terani-evening-dresses-style-e3780.jpg" alt="Terani Evening Dresses Style E3780" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/terani-evening-dresses/75060-terani-evening-dresses-style-e3780.html"><img src="//static.msromantic.com/177233/terani-evening-dresses-style-e3780.jpg" alt="Terani Evening Dresses Style E3780" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/terani-evening-dresses/75060-terani-evening-dresses-style-e3780.html"><img src="//static.msromantic.com/177231/terani-evening-dresses-style-e3780.jpg" alt="Terani Evening Dresses Style E3780" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/terani-evening-dresses/75060-terani-evening-dresses-style-e3780.html](https://www.readybrides.com/en/terani-evening-dresses/75060-terani-evening-dresses-style-e3780.html)
+<!-- break --><a href="https://www.antebrands.com/en/terani-evening-dresses/75060-terani-evening-dresses-style-e3780.html"><img src="//static.msromantic.com/177233/terani-evening-dresses-style-e3780.jpg" alt="Terani Evening Dresses Style E3780" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-evening-dresses/75060-terani-evening-dresses-style-e3780.html"><img src="//static.msromantic.com/177231/terani-evening-dresses-style-e3780.jpg" alt="Terani Evening Dresses Style E3780" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/terani-evening-dresses/75060-terani-evening-dresses-style-e3780.html](https://www.antebrands.com/en/terani-evening-dresses/75060-terani-evening-dresses-style-e3780.html)

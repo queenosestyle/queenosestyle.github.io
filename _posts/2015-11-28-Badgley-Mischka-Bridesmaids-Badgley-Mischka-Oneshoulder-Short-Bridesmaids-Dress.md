@@ -9,7 +9,7 @@ tags: [Badgley Mischka Bridesmaids]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/badgley-mischka-bridesmaids/72130-badgley-mischka-one-shoulder-short-bridesmaids-dress.html"><img src="//static.msromantic.com/169336/badgley-mischka-one-shoulder-short-bridesmaids-dress.jpg" alt="Badgley Mischka One-shoulder Short Bridesmaids Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/badgley-mischka-bridesmaids/72130-badgley-mischka-one-shoulder-short-bridesmaids-dress.html"><img src="//static.msromantic.com/169336/badgley-mischka-one-shoulder-short-bridesmaids-dress.jpg" alt="Badgley Mischka One-shoulder Short Bridesmaids Dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/badgley-mischka-bridesmaids/72130-badgley-mischka-one-shoulder-short-bridesmaids-dress.html](https://www.readybrides.com/en/badgley-mischka-bridesmaids/72130-badgley-mischka-one-shoulder-short-bridesmaids-dress.html)
+Buy it: [https://www.antebrands.com/en/badgley-mischka-bridesmaids/72130-badgley-mischka-one-shoulder-short-bridesmaids-dress.html](https://www.antebrands.com/en/badgley-mischka-bridesmaids/72130-badgley-mischka-one-shoulder-short-bridesmaids-dress.html)

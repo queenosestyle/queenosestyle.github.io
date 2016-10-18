@@ -9,7 +9,7 @@ tags: [True Bride Flower Girls]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-flower-girls/72732-true-bride-flower-girls-style-c926.html"><img src="//static.msromantic.com/170943/true-bride-flower-girls-style-c926.jpg" alt="True Bride Flower Girls Style C926" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-flower-girls/72732-true-bride-flower-girls-style-c926.html"><img src="//static.msromantic.com/170943/true-bride-flower-girls-style-c926.jpg" alt="True Bride Flower Girls Style C926" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/true-bride-flower-girls/72732-true-bride-flower-girls-style-c926.html"><img src="//static.msromantic.com/170942/true-bride-flower-girls-style-c926.jpg" alt="True Bride Flower Girls Style C926" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/true-bride-flower-girls/72732-true-bride-flower-girls-style-c926.html](https://www.readybrides.com/en/true-bride-flower-girls/72732-true-bride-flower-girls-style-c926.html)
+<!-- break --><a href="https://www.antebrands.com/en/true-bride-flower-girls/72732-true-bride-flower-girls-style-c926.html"><img src="//static.msromantic.com/170942/true-bride-flower-girls-style-c926.jpg" alt="True Bride Flower Girls Style C926" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/true-bride-flower-girls/72732-true-bride-flower-girls-style-c926.html](https://www.antebrands.com/en/true-bride-flower-girls/72732-true-bride-flower-girls-style-c926.html)

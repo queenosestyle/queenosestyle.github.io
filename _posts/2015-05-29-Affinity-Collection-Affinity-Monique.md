@@ -9,7 +9,7 @@ tags: [Affinity  Collection]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection/72414-affinity-monique.html"><img src="//static.msromantic.com/170220/affinity-monique.jpg" alt="Affinity Monique" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection/72414-affinity-monique.html"><img src="//static.msromantic.com/170220/affinity-monique.jpg" alt="Affinity Monique" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity-collection/72414-affinity-monique.html](https://www.readybrides.com/en/affinity-collection/72414-affinity-monique.html)
+Buy it: [https://www.antebrands.com/en/affinity-collection/72414-affinity-monique.html](https://www.antebrands.com/en/affinity-collection/72414-affinity-monique.html)

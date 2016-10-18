@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73302-le-rina-roksana.html"><img src="//static.msromantic.com/172603/le-rina-roksana.jpg" alt="Le Rina Roksana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73302-le-rina-roksana.html"><img src="//static.msromantic.com/172603/le-rina-roksana.jpg" alt="Le Rina Roksana" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73302-le-rina-roksana.html](https://www.readybrides.com/en/le-rina-wedd-2011/73302-le-rina-roksana.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73302-le-rina-roksana.html](https://www.antebrands.com/en/le-rina-wedd-2011/73302-le-rina-roksana.html)

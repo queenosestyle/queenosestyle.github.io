@@ -9,8 +9,8 @@ tags: [Avenue Diagonal]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/avenue-diagonal/71630-avenue-diagonal-style-umberta.html"><img src="//static.msromantic.com/168017/avenue-diagonal-style-umberta.jpg" alt="Avenue Diagonal Style UMBERTA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/avenue-diagonal/71630-avenue-diagonal-style-umberta.html"><img src="//static.msromantic.com/168017/avenue-diagonal-style-umberta.jpg" alt="Avenue Diagonal Style UMBERTA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/avenue-diagonal/71630-avenue-diagonal-style-umberta.html"><img src="//static.msromantic.com/168018/avenue-diagonal-style-umberta.jpg" alt="Avenue Diagonal Style UMBERTA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/avenue-diagonal/71630-avenue-diagonal-style-umberta.html"><img src="//static.msromantic.com/168016/avenue-diagonal-style-umberta.jpg" alt="Avenue Diagonal Style UMBERTA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/avenue-diagonal/71630-avenue-diagonal-style-umberta.html](https://www.readybrides.com/en/avenue-diagonal/71630-avenue-diagonal-style-umberta.html)
+<!-- break --><a href="https://www.antebrands.com/en/avenue-diagonal/71630-avenue-diagonal-style-umberta.html"><img src="//static.msromantic.com/168018/avenue-diagonal-style-umberta.jpg" alt="Avenue Diagonal Style UMBERTA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/avenue-diagonal/71630-avenue-diagonal-style-umberta.html"><img src="//static.msromantic.com/168016/avenue-diagonal-style-umberta.jpg" alt="Avenue Diagonal Style UMBERTA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/avenue-diagonal/71630-avenue-diagonal-style-umberta.html](https://www.antebrands.com/en/avenue-diagonal/71630-avenue-diagonal-style-umberta.html)

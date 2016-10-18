@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73183-le-rina-elvira.html"><img src="//static.msromantic.com/172348/le-rina-elvira.jpg" alt="Le Rina Elvira" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73183-le-rina-elvira.html"><img src="//static.msromantic.com/172348/le-rina-elvira.jpg" alt="Le Rina Elvira" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73183-le-rina-elvira.html"><img src="//static.msromantic.com/172347/le-rina-elvira.jpg" alt="Le Rina Elvira" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73183-le-rina-elvira.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73183-le-rina-elvira.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73183-le-rina-elvira.html"><img src="//static.msromantic.com/172347/le-rina-elvira.jpg" alt="Le Rina Elvira" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73183-le-rina-elvira.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73183-le-rina-elvira.html)

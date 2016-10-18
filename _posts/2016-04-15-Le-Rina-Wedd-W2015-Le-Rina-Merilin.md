@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73203-le-rina-merilin.html"><img src="//static.msromantic.com/172387/le-rina-merilin.jpg" alt="Le Rina Merilin" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73203-le-rina-merilin.html"><img src="//static.msromantic.com/172387/le-rina-merilin.jpg" alt="Le Rina Merilin" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73203-le-rina-merilin.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73203-le-rina-merilin.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73203-le-rina-merilin.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73203-le-rina-merilin.html)

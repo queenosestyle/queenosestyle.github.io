@@ -9,7 +9,7 @@ tags: [Affinity  Collection]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection/72409-affinity-maria.html"><img src="//static.msromantic.com/170209/affinity-maria.jpg" alt="Affinity Maria" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection/72409-affinity-maria.html"><img src="//static.msromantic.com/170209/affinity-maria.jpg" alt="Affinity Maria" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity-collection/72409-affinity-maria.html](https://www.readybrides.com/en/affinity-collection/72409-affinity-maria.html)
+Buy it: [https://www.antebrands.com/en/affinity-collection/72409-affinity-maria.html](https://www.antebrands.com/en/affinity-collection/72409-affinity-maria.html)

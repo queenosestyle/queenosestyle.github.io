@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73170-le-rina-alita.html"><img src="//static.msromantic.com/172323/le-rina-alita.jpg" alt="Le Rina Alita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73170-le-rina-alita.html"><img src="//static.msromantic.com/172323/le-rina-alita.jpg" alt="Le Rina Alita" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73170-le-rina-alita.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73170-le-rina-alita.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73170-le-rina-alita.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73170-le-rina-alita.html)

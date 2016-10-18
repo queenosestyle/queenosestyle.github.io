@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73210-le-rina-tiana.html"><img src="//static.msromantic.com/172399/le-rina-tiana.jpg" alt="Le Rina Tiana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73210-le-rina-tiana.html"><img src="//static.msromantic.com/172399/le-rina-tiana.jpg" alt="Le Rina Tiana" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73210-le-rina-tiana.html"><img src="//static.msromantic.com/172398/le-rina-tiana.jpg" alt="Le Rina Tiana" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73210-le-rina-tiana.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73210-le-rina-tiana.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73210-le-rina-tiana.html"><img src="//static.msromantic.com/172398/le-rina-tiana.jpg" alt="Le Rina Tiana" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73210-le-rina-tiana.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73210-le-rina-tiana.html)

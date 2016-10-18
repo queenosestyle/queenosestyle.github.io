@@ -9,7 +9,7 @@ tags: [Affinity Collection 2014]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2014/72450-affinity-virgina.html"><img src="//static.msromantic.com/170285/affinity-virgina.jpg" alt="Affinity Virgina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2014/72450-affinity-virgina.html"><img src="//static.msromantic.com/170285/affinity-virgina.jpg" alt="Affinity Virgina" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity-collection-2014/72450-affinity-virgina.html](https://www.readybrides.com/en/affinity-collection-2014/72450-affinity-virgina.html)
+Buy it: [https://www.antebrands.com/en/affinity-collection-2014/72450-affinity-virgina.html](https://www.antebrands.com/en/affinity-collection-2014/72450-affinity-virgina.html)

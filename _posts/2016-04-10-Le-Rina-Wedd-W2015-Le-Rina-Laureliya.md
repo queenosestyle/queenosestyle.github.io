@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73198-le-rina-laureliya.html"><img src="//static.msromantic.com/172379/le-rina-laureliya.jpg" alt="Le Rina Laureliya" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73198-le-rina-laureliya.html"><img src="//static.msromantic.com/172379/le-rina-laureliya.jpg" alt="Le Rina Laureliya" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73198-le-rina-laureliya.html"><img src="//static.msromantic.com/172378/le-rina-laureliya.jpg" alt="Le Rina Laureliya" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73198-le-rina-laureliya.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73198-le-rina-laureliya.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73198-le-rina-laureliya.html"><img src="//static.msromantic.com/172378/le-rina-laureliya.jpg" alt="Le Rina Laureliya" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73198-le-rina-laureliya.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73198-le-rina-laureliya.html)

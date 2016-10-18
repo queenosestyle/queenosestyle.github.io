@@ -9,7 +9,7 @@ tags: [Adrianna Papell]
 Just **$249.00**
 ### 
 
-<a href="https://www.readybrides.com/en/adrianna-papell/75562-adrianna-papell-sleeveless-fully-beaded-cocktail-dress.html"><img src="//static.msromantic.com/178603/adrianna-papell-sleeveless-fully-beaded-cocktail-dress.jpg" alt="Adrianna Papell Sleeveless Fully Beaded Cocktail Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adrianna-papell/75562-adrianna-papell-sleeveless-fully-beaded-cocktail-dress.html"><img src="//static.msromantic.com/178603/adrianna-papell-sleeveless-fully-beaded-cocktail-dress.jpg" alt="Adrianna Papell Sleeveless Fully Beaded Cocktail Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adrianna-papell/75562-adrianna-papell-sleeveless-fully-beaded-cocktail-dress.html"><img src="//static.msromantic.com/178602/adrianna-papell-sleeveless-fully-beaded-cocktail-dress.jpg" alt="Adrianna Papell Sleeveless Fully Beaded Cocktail Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adrianna-papell/75562-adrianna-papell-sleeveless-fully-beaded-cocktail-dress.html](https://www.readybrides.com/en/adrianna-papell/75562-adrianna-papell-sleeveless-fully-beaded-cocktail-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/adrianna-papell/75562-adrianna-papell-sleeveless-fully-beaded-cocktail-dress.html"><img src="//static.msromantic.com/178602/adrianna-papell-sleeveless-fully-beaded-cocktail-dress.jpg" alt="Adrianna Papell Sleeveless Fully Beaded Cocktail Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adrianna-papell/75562-adrianna-papell-sleeveless-fully-beaded-cocktail-dress.html](https://www.antebrands.com/en/adrianna-papell/75562-adrianna-papell-sleeveless-fully-beaded-cocktail-dress.html)

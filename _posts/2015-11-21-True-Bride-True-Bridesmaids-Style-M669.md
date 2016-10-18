@@ -9,8 +9,8 @@ tags: [True Bride True Bridesmaids]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-true-bridesmaids/72590-true-bride-true-bridesmaids-style-m669.html"><img src="//static.msromantic.com/170632/true-bride-true-bridesmaids-style-m669.jpg" alt="True Bride True Bridesmaids Style M669" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-true-bridesmaids/72590-true-bride-true-bridesmaids-style-m669.html"><img src="//static.msromantic.com/170632/true-bride-true-bridesmaids-style-m669.jpg" alt="True Bride True Bridesmaids Style M669" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/true-bride-true-bridesmaids/72590-true-bride-true-bridesmaids-style-m669.html"><img src="//static.msromantic.com/170633/true-bride-true-bridesmaids-style-m669.jpg" alt="True Bride True Bridesmaids Style M669" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/true-bride-true-bridesmaids/72590-true-bride-true-bridesmaids-style-m669.html"><img src="//static.msromantic.com/170631/true-bride-true-bridesmaids-style-m669.jpg" alt="True Bride True Bridesmaids Style M669" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/true-bride-true-bridesmaids/72590-true-bride-true-bridesmaids-style-m669.html](https://www.readybrides.com/en/true-bride-true-bridesmaids/72590-true-bride-true-bridesmaids-style-m669.html)
+<!-- break --><a href="https://www.antebrands.com/en/true-bride-true-bridesmaids/72590-true-bride-true-bridesmaids-style-m669.html"><img src="//static.msromantic.com/170633/true-bride-true-bridesmaids-style-m669.jpg" alt="True Bride True Bridesmaids Style M669" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-true-bridesmaids/72590-true-bride-true-bridesmaids-style-m669.html"><img src="//static.msromantic.com/170631/true-bride-true-bridesmaids-style-m669.jpg" alt="True Bride True Bridesmaids Style M669" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/true-bride-true-bridesmaids/72590-true-bride-true-bridesmaids-style-m669.html](https://www.antebrands.com/en/true-bride-true-bridesmaids/72590-true-bride-true-bridesmaids-style-m669.html)

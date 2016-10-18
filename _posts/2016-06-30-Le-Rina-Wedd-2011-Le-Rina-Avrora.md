@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73279-le-rina-avrora.html"><img src="//static.msromantic.com/172571/le-rina-avrora.jpg" alt="Le Rina Avrora" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73279-le-rina-avrora.html"><img src="//static.msromantic.com/172571/le-rina-avrora.jpg" alt="Le Rina Avrora" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73279-le-rina-avrora.html](https://www.readybrides.com/en/le-rina-wedd-2011/73279-le-rina-avrora.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73279-le-rina-avrora.html](https://www.antebrands.com/en/le-rina-wedd-2011/73279-le-rina-avrora.html)

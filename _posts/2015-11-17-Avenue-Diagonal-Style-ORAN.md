@@ -9,8 +9,8 @@ tags: [Avenue Diagonal]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/avenue-diagonal/71652-avenue-diagonal-style-oran.html"><img src="//static.msromantic.com/168083/avenue-diagonal-style-oran.jpg" alt="Avenue Diagonal Style ORAN" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/avenue-diagonal/71652-avenue-diagonal-style-oran.html"><img src="//static.msromantic.com/168083/avenue-diagonal-style-oran.jpg" alt="Avenue Diagonal Style ORAN" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/avenue-diagonal/71652-avenue-diagonal-style-oran.html"><img src="//static.msromantic.com/168084/avenue-diagonal-style-oran.jpg" alt="Avenue Diagonal Style ORAN" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/avenue-diagonal/71652-avenue-diagonal-style-oran.html"><img src="//static.msromantic.com/168082/avenue-diagonal-style-oran.jpg" alt="Avenue Diagonal Style ORAN" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/avenue-diagonal/71652-avenue-diagonal-style-oran.html](https://www.readybrides.com/en/avenue-diagonal/71652-avenue-diagonal-style-oran.html)
+<!-- break --><a href="https://www.antebrands.com/en/avenue-diagonal/71652-avenue-diagonal-style-oran.html"><img src="//static.msromantic.com/168084/avenue-diagonal-style-oran.jpg" alt="Avenue Diagonal Style ORAN" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/avenue-diagonal/71652-avenue-diagonal-style-oran.html"><img src="//static.msromantic.com/168082/avenue-diagonal-style-oran.jpg" alt="Avenue Diagonal Style ORAN" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/avenue-diagonal/71652-avenue-diagonal-style-oran.html](https://www.antebrands.com/en/avenue-diagonal/71652-avenue-diagonal-style-oran.html)

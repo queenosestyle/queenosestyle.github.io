@@ -9,7 +9,7 @@ tags: [True Bride Brighton Belle]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-brighton-belle/72576-true-bride-brighton-belle-style-etta.html"><img src="//static.msromantic.com/170604/true-bride-brighton-belle-style-etta.jpg" alt="True Bride Brighton Belle Style Etta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-brighton-belle/72576-true-bride-brighton-belle-style-etta.html"><img src="//static.msromantic.com/170604/true-bride-brighton-belle-style-etta.jpg" alt="True Bride Brighton Belle Style Etta" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/true-bride-brighton-belle/72576-true-bride-brighton-belle-style-etta.html"><img src="//static.msromantic.com/170603/true-bride-brighton-belle-style-etta.jpg" alt="True Bride Brighton Belle Style Etta" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/true-bride-brighton-belle/72576-true-bride-brighton-belle-style-etta.html](https://www.readybrides.com/en/true-bride-brighton-belle/72576-true-bride-brighton-belle-style-etta.html)
+<!-- break --><a href="https://www.antebrands.com/en/true-bride-brighton-belle/72576-true-bride-brighton-belle-style-etta.html"><img src="//static.msromantic.com/170603/true-bride-brighton-belle-style-etta.jpg" alt="True Bride Brighton Belle Style Etta" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/true-bride-brighton-belle/72576-true-bride-brighton-belle-style-etta.html](https://www.antebrands.com/en/true-bride-brighton-belle/72576-true-bride-brighton-belle-style-etta.html)

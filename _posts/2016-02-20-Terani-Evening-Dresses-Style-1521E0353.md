@@ -9,7 +9,7 @@ tags: [Terani Evening Dresses]
 Just **$599.99**
 ### 
 
-<a href="https://www.readybrides.com/en/terani-evening-dresses/75016-terani-evening-dresses-style-1521e0353.html"><img src="//static.msromantic.com/177104/terani-evening-dresses-style-1521e0353.jpg" alt="Terani Evening Dresses Style 1521E0353" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-evening-dresses/75016-terani-evening-dresses-style-1521e0353.html"><img src="//static.msromantic.com/177104/terani-evening-dresses-style-1521e0353.jpg" alt="Terani Evening Dresses Style 1521E0353" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/terani-evening-dresses/75016-terani-evening-dresses-style-1521e0353.html"><img src="//static.msromantic.com/177103/terani-evening-dresses-style-1521e0353.jpg" alt="Terani Evening Dresses Style 1521E0353" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/terani-evening-dresses/75016-terani-evening-dresses-style-1521e0353.html](https://www.readybrides.com/en/terani-evening-dresses/75016-terani-evening-dresses-style-1521e0353.html)
+<!-- break --><a href="https://www.antebrands.com/en/terani-evening-dresses/75016-terani-evening-dresses-style-1521e0353.html"><img src="//static.msromantic.com/177103/terani-evening-dresses-style-1521e0353.jpg" alt="Terani Evening Dresses Style 1521E0353" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/terani-evening-dresses/75016-terani-evening-dresses-style-1521e0353.html](https://www.antebrands.com/en/terani-evening-dresses/75016-terani-evening-dresses-style-1521e0353.html)

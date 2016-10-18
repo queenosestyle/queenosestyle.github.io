@@ -9,8 +9,8 @@ tags: [Le Rina Wedd W2016]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2016/73221-le-rina-djenna.html"><img src="//static.msromantic.com/172428/le-rina-djenna.jpg" alt="Le Rina Djenna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2016/73221-le-rina-djenna.html"><img src="//static.msromantic.com/172428/le-rina-djenna.jpg" alt="Le Rina Djenna" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2016/73221-le-rina-djenna.html"><img src="//static.msromantic.com/172429/le-rina-djenna.jpg" alt="Le Rina Djenna" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2016/73221-le-rina-djenna.html"><img src="//static.msromantic.com/172427/le-rina-djenna.jpg" alt="Le Rina Djenna" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2016/73221-le-rina-djenna.html](https://www.readybrides.com/en/le-rina-wedd-w2016/73221-le-rina-djenna.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2016/73221-le-rina-djenna.html"><img src="//static.msromantic.com/172429/le-rina-djenna.jpg" alt="Le Rina Djenna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2016/73221-le-rina-djenna.html"><img src="//static.msromantic.com/172427/le-rina-djenna.jpg" alt="Le Rina Djenna" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2016/73221-le-rina-djenna.html](https://www.antebrands.com/en/le-rina-wedd-w2016/73221-le-rina-djenna.html)

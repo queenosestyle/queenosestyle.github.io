@@ -9,7 +9,7 @@ tags: [Le Rina Night N2015]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-night-n2015/73141-le-rina-veronik.html"><img src="//static.msromantic.com/172263/le-rina-veronik.jpg" alt="Le Rina Veronik" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-night-n2015/73141-le-rina-veronik.html"><img src="//static.msromantic.com/172263/le-rina-veronik.jpg" alt="Le Rina Veronik" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-night-n2015/73141-le-rina-veronik.html"><img src="//static.msromantic.com/172262/le-rina-veronik.jpg" alt="Le Rina Veronik" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-night-n2015/73141-le-rina-veronik.html](https://www.readybrides.com/en/le-rina-night-n2015/73141-le-rina-veronik.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-night-n2015/73141-le-rina-veronik.html"><img src="//static.msromantic.com/172262/le-rina-veronik.jpg" alt="Le Rina Veronik" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-night-n2015/73141-le-rina-veronik.html](https://www.antebrands.com/en/le-rina-night-n2015/73141-le-rina-veronik.html)

@@ -9,8 +9,8 @@ tags: [Avenue Diagonal]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/avenue-diagonal/71653-avenue-diagonal-style-giannina.html"><img src="//static.msromantic.com/168086/avenue-diagonal-style-giannina.jpg" alt="Avenue Diagonal Style GIANNINA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/avenue-diagonal/71653-avenue-diagonal-style-giannina.html"><img src="//static.msromantic.com/168086/avenue-diagonal-style-giannina.jpg" alt="Avenue Diagonal Style GIANNINA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/avenue-diagonal/71653-avenue-diagonal-style-giannina.html"><img src="//static.msromantic.com/168087/avenue-diagonal-style-giannina.jpg" alt="Avenue Diagonal Style GIANNINA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/avenue-diagonal/71653-avenue-diagonal-style-giannina.html"><img src="//static.msromantic.com/168085/avenue-diagonal-style-giannina.jpg" alt="Avenue Diagonal Style GIANNINA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/avenue-diagonal/71653-avenue-diagonal-style-giannina.html](https://www.readybrides.com/en/avenue-diagonal/71653-avenue-diagonal-style-giannina.html)
+<!-- break --><a href="https://www.antebrands.com/en/avenue-diagonal/71653-avenue-diagonal-style-giannina.html"><img src="//static.msromantic.com/168087/avenue-diagonal-style-giannina.jpg" alt="Avenue Diagonal Style GIANNINA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/avenue-diagonal/71653-avenue-diagonal-style-giannina.html"><img src="//static.msromantic.com/168085/avenue-diagonal-style-giannina.jpg" alt="Avenue Diagonal Style GIANNINA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/avenue-diagonal/71653-avenue-diagonal-style-giannina.html](https://www.antebrands.com/en/avenue-diagonal/71653-avenue-diagonal-style-giannina.html)

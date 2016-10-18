@@ -9,7 +9,7 @@ tags: [Affinity]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity/71711-affinity-bridal-gowns-alba.html"><img src="//static.msromantic.com/168309/affinity-bridal-gowns-alba.jpg" alt="Affinity Bridal Gowns Alba" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity/71711-affinity-bridal-gowns-alba.html"><img src="//static.msromantic.com/168309/affinity-bridal-gowns-alba.jpg" alt="Affinity Bridal Gowns Alba" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity/71711-affinity-bridal-gowns-alba.html](https://www.readybrides.com/en/affinity/71711-affinity-bridal-gowns-alba.html)
+Buy it: [https://www.antebrands.com/en/affinity/71711-affinity-bridal-gowns-alba.html](https://www.antebrands.com/en/affinity/71711-affinity-bridal-gowns-alba.html)

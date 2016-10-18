@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73289-le-rina-endy.html"><img src="//static.msromantic.com/172586/le-rina-endy.jpg" alt="Le Rina  Endy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73289-le-rina-endy.html"><img src="//static.msromantic.com/172586/le-rina-endy.jpg" alt="Le Rina  Endy" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-2011/73289-le-rina-endy.html"><img src="//static.msromantic.com/172585/le-rina-endy.jpg" alt="Le Rina  Endy" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73289-le-rina-endy.html](https://www.readybrides.com/en/le-rina-wedd-2011/73289-le-rina-endy.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-2011/73289-le-rina-endy.html"><img src="//static.msromantic.com/172585/le-rina-endy.jpg" alt="Le Rina  Endy" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73289-le-rina-endy.html](https://www.antebrands.com/en/le-rina-wedd-2011/73289-le-rina-endy.html)

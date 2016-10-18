@@ -9,7 +9,7 @@ tags: [Affinity Collection 2014]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2014/72447-affinity-susan.html"><img src="//static.msromantic.com/170281/affinity-susan.jpg" alt="Affinity Susan" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2014/72447-affinity-susan.html"><img src="//static.msromantic.com/170281/affinity-susan.jpg" alt="Affinity Susan" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity-collection-2014/72447-affinity-susan.html](https://www.readybrides.com/en/affinity-collection-2014/72447-affinity-susan.html)
+Buy it: [https://www.antebrands.com/en/affinity-collection-2014/72447-affinity-susan.html](https://www.antebrands.com/en/affinity-collection-2014/72447-affinity-susan.html)

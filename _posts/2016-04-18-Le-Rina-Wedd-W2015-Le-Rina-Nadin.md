@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73206-le-rina-nadin.html"><img src="//static.msromantic.com/172392/le-rina-nadin.jpg" alt="Le Rina Nadin" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73206-le-rina-nadin.html"><img src="//static.msromantic.com/172392/le-rina-nadin.jpg" alt="Le Rina Nadin" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73206-le-rina-nadin.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73206-le-rina-nadin.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73206-le-rina-nadin.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73206-le-rina-nadin.html)

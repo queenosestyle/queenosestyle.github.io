@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73300-le-rina-penelopa.html"><img src="//static.msromantic.com/172601/le-rina-penelopa.jpg" alt="Le Rina  Penelopa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73300-le-rina-penelopa.html"><img src="//static.msromantic.com/172601/le-rina-penelopa.jpg" alt="Le Rina  Penelopa" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73300-le-rina-penelopa.html](https://www.readybrides.com/en/le-rina-wedd-2011/73300-le-rina-penelopa.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73300-le-rina-penelopa.html](https://www.antebrands.com/en/le-rina-wedd-2011/73300-le-rina-penelopa.html)

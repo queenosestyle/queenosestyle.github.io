@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73278-le-rina-avgusta.html"><img src="//static.msromantic.com/172570/le-rina-avgusta.jpg" alt="Le Rina Avgusta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73278-le-rina-avgusta.html"><img src="//static.msromantic.com/172570/le-rina-avgusta.jpg" alt="Le Rina Avgusta" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73278-le-rina-avgusta.html](https://www.readybrides.com/en/le-rina-wedd-2011/73278-le-rina-avgusta.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73278-le-rina-avgusta.html](https://www.antebrands.com/en/le-rina-wedd-2011/73278-le-rina-avgusta.html)

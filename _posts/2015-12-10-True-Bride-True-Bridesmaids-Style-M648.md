@@ -9,7 +9,7 @@ tags: [True Bride True Bridesmaids]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-true-bridesmaids/72609-true-bride-true-bridesmaids-style-m648.html"><img src="//static.msromantic.com/170673/true-bride-true-bridesmaids-style-m648.jpg" alt="True Bride True Bridesmaids Style M648" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-true-bridesmaids/72609-true-bride-true-bridesmaids-style-m648.html"><img src="//static.msromantic.com/170673/true-bride-true-bridesmaids-style-m648.jpg" alt="True Bride True Bridesmaids Style M648" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/true-bride-true-bridesmaids/72609-true-bride-true-bridesmaids-style-m648.html](https://www.readybrides.com/en/true-bride-true-bridesmaids/72609-true-bride-true-bridesmaids-style-m648.html)
+Buy it: [https://www.antebrands.com/en/true-bride-true-bridesmaids/72609-true-bride-true-bridesmaids-style-m648.html](https://www.antebrands.com/en/true-bride-true-bridesmaids/72609-true-bride-true-bridesmaids-style-m648.html)

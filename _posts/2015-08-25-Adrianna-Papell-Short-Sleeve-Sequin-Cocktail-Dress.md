@@ -9,7 +9,7 @@ tags: [Adrianna Papell]
 Just **$199.00**
 ### 
 
-<a href="https://www.readybrides.com/en/adrianna-papell/75771-adrianna-papell-short-sleeve-sequin-cocktail-dress.html"><img src="//static.msromantic.com/179051/adrianna-papell-short-sleeve-sequin-cocktail-dress.jpg" alt="Adrianna Papell Short Sleeve Sequin Cocktail Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adrianna-papell/75771-adrianna-papell-short-sleeve-sequin-cocktail-dress.html"><img src="//static.msromantic.com/179051/adrianna-papell-short-sleeve-sequin-cocktail-dress.jpg" alt="Adrianna Papell Short Sleeve Sequin Cocktail Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adrianna-papell/75771-adrianna-papell-short-sleeve-sequin-cocktail-dress.html"><img src="//static.msromantic.com/179050/adrianna-papell-short-sleeve-sequin-cocktail-dress.jpg" alt="Adrianna Papell Short Sleeve Sequin Cocktail Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adrianna-papell/75771-adrianna-papell-short-sleeve-sequin-cocktail-dress.html](https://www.readybrides.com/en/adrianna-papell/75771-adrianna-papell-short-sleeve-sequin-cocktail-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/adrianna-papell/75771-adrianna-papell-short-sleeve-sequin-cocktail-dress.html"><img src="//static.msromantic.com/179050/adrianna-papell-short-sleeve-sequin-cocktail-dress.jpg" alt="Adrianna Papell Short Sleeve Sequin Cocktail Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adrianna-papell/75771-adrianna-papell-short-sleeve-sequin-cocktail-dress.html](https://www.antebrands.com/en/adrianna-papell/75771-adrianna-papell-short-sleeve-sequin-cocktail-dress.html)

@@ -9,7 +9,7 @@ tags: [Affinity]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity/71728-affinity-bridal-gowns-cassandra.html"><img src="//static.msromantic.com/168341/affinity-bridal-gowns-cassandra.jpg" alt="Affinity Bridal Gowns Cassandra" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity/71728-affinity-bridal-gowns-cassandra.html"><img src="//static.msromantic.com/168341/affinity-bridal-gowns-cassandra.jpg" alt="Affinity Bridal Gowns Cassandra" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/affinity/71728-affinity-bridal-gowns-cassandra.html"><img src="//static.msromantic.com/168340/affinity-bridal-gowns-cassandra.jpg" alt="Affinity Bridal Gowns Cassandra" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/affinity/71728-affinity-bridal-gowns-cassandra.html](https://www.readybrides.com/en/affinity/71728-affinity-bridal-gowns-cassandra.html)
+<!-- break --><a href="https://www.antebrands.com/en/affinity/71728-affinity-bridal-gowns-cassandra.html"><img src="//static.msromantic.com/168340/affinity-bridal-gowns-cassandra.jpg" alt="Affinity Bridal Gowns Cassandra" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/affinity/71728-affinity-bridal-gowns-cassandra.html](https://www.antebrands.com/en/affinity/71728-affinity-bridal-gowns-cassandra.html)

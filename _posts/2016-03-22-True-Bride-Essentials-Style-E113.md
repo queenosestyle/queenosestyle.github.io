@@ -9,7 +9,7 @@ tags: [True Bride Essentials]
 Just **$219.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-essentials/72712-true-bride-essentials-style-e113.html"><img src="//static.msromantic.com/170911/true-bride-essentials-style-e113.jpg" alt="True Bride Essentials Style E113" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-essentials/72712-true-bride-essentials-style-e113.html"><img src="//static.msromantic.com/170911/true-bride-essentials-style-e113.jpg" alt="True Bride Essentials Style E113" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/true-bride-essentials/72712-true-bride-essentials-style-e113.html"><img src="//static.msromantic.com/170910/true-bride-essentials-style-e113.jpg" alt="True Bride Essentials Style E113" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/true-bride-essentials/72712-true-bride-essentials-style-e113.html](https://www.readybrides.com/en/true-bride-essentials/72712-true-bride-essentials-style-e113.html)
+<!-- break --><a href="https://www.antebrands.com/en/true-bride-essentials/72712-true-bride-essentials-style-e113.html"><img src="//static.msromantic.com/170910/true-bride-essentials-style-e113.jpg" alt="True Bride Essentials Style E113" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/true-bride-essentials/72712-true-bride-essentials-style-e113.html](https://www.antebrands.com/en/true-bride-essentials/72712-true-bride-essentials-style-e113.html)

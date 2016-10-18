@@ -9,8 +9,8 @@ tags: [True Bride Luna]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-luna/72696-true-bride-luna-style-lopez.html"><img src="//static.msromantic.com/170875/true-bride-luna-style-lopez.jpg" alt="True Bride Luna Style Lopez" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-luna/72696-true-bride-luna-style-lopez.html"><img src="//static.msromantic.com/170875/true-bride-luna-style-lopez.jpg" alt="True Bride Luna Style Lopez" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/true-bride-luna/72696-true-bride-luna-style-lopez.html"><img src="//static.msromantic.com/170876/true-bride-luna-style-lopez.jpg" alt="True Bride Luna Style Lopez" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/true-bride-luna/72696-true-bride-luna-style-lopez.html"><img src="//static.msromantic.com/170874/true-bride-luna-style-lopez.jpg" alt="True Bride Luna Style Lopez" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/true-bride-luna/72696-true-bride-luna-style-lopez.html](https://www.readybrides.com/en/true-bride-luna/72696-true-bride-luna-style-lopez.html)
+<!-- break --><a href="https://www.antebrands.com/en/true-bride-luna/72696-true-bride-luna-style-lopez.html"><img src="//static.msromantic.com/170876/true-bride-luna-style-lopez.jpg" alt="True Bride Luna Style Lopez" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-luna/72696-true-bride-luna-style-lopez.html"><img src="//static.msromantic.com/170874/true-bride-luna-style-lopez.jpg" alt="True Bride Luna Style Lopez" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/true-bride-luna/72696-true-bride-luna-style-lopez.html](https://www.antebrands.com/en/true-bride-luna/72696-true-bride-luna-style-lopez.html)

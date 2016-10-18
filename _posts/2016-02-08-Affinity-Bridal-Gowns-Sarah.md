@@ -9,7 +9,7 @@ tags: [Affinity]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity/71735-affinity-bridal-gowns-sarah.html"><img src="//static.msromantic.com/168351/affinity-bridal-gowns-sarah.jpg" alt="Affinity Bridal Gowns Sarah" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity/71735-affinity-bridal-gowns-sarah.html"><img src="//static.msromantic.com/168351/affinity-bridal-gowns-sarah.jpg" alt="Affinity Bridal Gowns Sarah" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity/71735-affinity-bridal-gowns-sarah.html](https://www.readybrides.com/en/affinity/71735-affinity-bridal-gowns-sarah.html)
+Buy it: [https://www.antebrands.com/en/affinity/71735-affinity-bridal-gowns-sarah.html](https://www.antebrands.com/en/affinity/71735-affinity-bridal-gowns-sarah.html)

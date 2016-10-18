@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73200-le-rina-liya.html"><img src="//static.msromantic.com/172382/le-rina-liya.jpg" alt="Le Rina Liya" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73200-le-rina-liya.html"><img src="//static.msromantic.com/172382/le-rina-liya.jpg" alt="Le Rina Liya" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73200-le-rina-liya.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73200-le-rina-liya.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73200-le-rina-liya.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73200-le-rina-liya.html)

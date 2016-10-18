@@ -9,7 +9,7 @@ tags: [Affinity Collection 2014]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2014/72444-affinity-maxine.html"><img src="//static.msromantic.com/170277/affinity-maxine.jpg" alt="Affinity Maxine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2014/72444-affinity-maxine.html"><img src="//static.msromantic.com/170277/affinity-maxine.jpg" alt="Affinity Maxine" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity-collection-2014/72444-affinity-maxine.html](https://www.readybrides.com/en/affinity-collection-2014/72444-affinity-maxine.html)
+Buy it: [https://www.antebrands.com/en/affinity-collection-2014/72444-affinity-maxine.html](https://www.antebrands.com/en/affinity-collection-2014/72444-affinity-maxine.html)

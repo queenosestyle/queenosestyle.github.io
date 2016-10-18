@@ -9,7 +9,7 @@ tags: [Adrianna Papell]
 Just **$130.00**
 ### 
 
-<a href="https://www.readybrides.com/en/adrianna-papell/75633-adrianna-papell-metallic-jacquard-sheath-dress.html"><img src="//static.msromantic.com/178758/adrianna-papell-metallic-jacquard-sheath-dress.jpg" alt="Adrianna Papell Metallic Jacquard Sheath Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adrianna-papell/75633-adrianna-papell-metallic-jacquard-sheath-dress.html"><img src="//static.msromantic.com/178758/adrianna-papell-metallic-jacquard-sheath-dress.jpg" alt="Adrianna Papell Metallic Jacquard Sheath Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adrianna-papell/75633-adrianna-papell-metallic-jacquard-sheath-dress.html"><img src="//static.msromantic.com/178757/adrianna-papell-metallic-jacquard-sheath-dress.jpg" alt="Adrianna Papell Metallic Jacquard Sheath Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adrianna-papell/75633-adrianna-papell-metallic-jacquard-sheath-dress.html](https://www.readybrides.com/en/adrianna-papell/75633-adrianna-papell-metallic-jacquard-sheath-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/adrianna-papell/75633-adrianna-papell-metallic-jacquard-sheath-dress.html"><img src="//static.msromantic.com/178757/adrianna-papell-metallic-jacquard-sheath-dress.jpg" alt="Adrianna Papell Metallic Jacquard Sheath Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adrianna-papell/75633-adrianna-papell-metallic-jacquard-sheath-dress.html](https://www.antebrands.com/en/adrianna-papell/75633-adrianna-papell-metallic-jacquard-sheath-dress.html)

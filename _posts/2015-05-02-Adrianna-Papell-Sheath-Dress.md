@@ -9,7 +9,7 @@ tags: [Adrianna Papell]
 Just **$120.00**
 ### 
 
-<a href="https://www.readybrides.com/en/adrianna-papell/75656-adrianna-papell-sheath-dress.html"><img src="//static.msromantic.com/178808/adrianna-papell-sheath-dress.jpg" alt="Adrianna Papell Sheath Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adrianna-papell/75656-adrianna-papell-sheath-dress.html"><img src="//static.msromantic.com/178808/adrianna-papell-sheath-dress.jpg" alt="Adrianna Papell Sheath Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adrianna-papell/75656-adrianna-papell-sheath-dress.html"><img src="//static.msromantic.com/178807/adrianna-papell-sheath-dress.jpg" alt="Adrianna Papell Sheath Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adrianna-papell/75656-adrianna-papell-sheath-dress.html](https://www.readybrides.com/en/adrianna-papell/75656-adrianna-papell-sheath-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/adrianna-papell/75656-adrianna-papell-sheath-dress.html"><img src="//static.msromantic.com/178807/adrianna-papell-sheath-dress.jpg" alt="Adrianna Papell Sheath Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adrianna-papell/75656-adrianna-papell-sheath-dress.html](https://www.antebrands.com/en/adrianna-papell/75656-adrianna-papell-sheath-dress.html)

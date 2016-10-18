@@ -9,11 +9,11 @@ tags: [Veluz Collections 2013]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168258/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168258/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168259/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168260/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168261/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168262/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168257/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/veluz-collections-2013/71692-veluz-vivian.html](https://www.readybrides.com/en/veluz-collections-2013/71692-veluz-vivian.html)
+<!-- break --><a href="https://www.antebrands.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168259/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168260/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168261/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168262/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/veluz-collections-2013/71692-veluz-vivian.html"><img src="//static.msromantic.com/168257/veluz-vivian.jpg" alt="Veluz Vivian" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/veluz-collections-2013/71692-veluz-vivian.html](https://www.antebrands.com/en/veluz-collections-2013/71692-veluz-vivian.html)

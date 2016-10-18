@@ -9,7 +9,7 @@ tags: [Affinity  Collection]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection/72413-affinity-mila.html"><img src="//static.msromantic.com/170219/affinity-mila.jpg" alt="Affinity Mila" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection/72413-affinity-mila.html"><img src="//static.msromantic.com/170219/affinity-mila.jpg" alt="Affinity Mila" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/affinity-collection/72413-affinity-mila.html"><img src="//static.msromantic.com/170218/affinity-mila.jpg" alt="Affinity Mila" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/affinity-collection/72413-affinity-mila.html](https://www.readybrides.com/en/affinity-collection/72413-affinity-mila.html)
+<!-- break --><a href="https://www.antebrands.com/en/affinity-collection/72413-affinity-mila.html"><img src="//static.msromantic.com/170218/affinity-mila.jpg" alt="Affinity Mila" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/affinity-collection/72413-affinity-mila.html](https://www.antebrands.com/en/affinity-collection/72413-affinity-mila.html)

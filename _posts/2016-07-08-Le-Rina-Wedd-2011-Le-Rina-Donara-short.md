@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73287-le-rina-donara-short.html"><img src="//static.msromantic.com/172583/le-rina-donara-short.jpg" alt="Le Rina Donara (short)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73287-le-rina-donara-short.html"><img src="//static.msromantic.com/172583/le-rina-donara-short.jpg" alt="Le Rina Donara (short)" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-2011/73287-le-rina-donara-short.html"><img src="//static.msromantic.com/172582/le-rina-donara-short.jpg" alt="Le Rina Donara (short)" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73287-le-rina-donara-short.html](https://www.readybrides.com/en/le-rina-wedd-2011/73287-le-rina-donara-short.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-2011/73287-le-rina-donara-short.html"><img src="//static.msromantic.com/172582/le-rina-donara-short.jpg" alt="Le Rina Donara (short)" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73287-le-rina-donara-short.html](https://www.antebrands.com/en/le-rina-wedd-2011/73287-le-rina-donara-short.html)

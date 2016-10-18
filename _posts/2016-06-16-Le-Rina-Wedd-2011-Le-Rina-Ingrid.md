@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73265-le-rina-ingrid.html"><img src="//static.msromantic.com/172551/le-rina-ingrid.jpg" alt="Le Rina Ingrid" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73265-le-rina-ingrid.html"><img src="//static.msromantic.com/172551/le-rina-ingrid.jpg" alt="Le Rina Ingrid" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-2011/73265-le-rina-ingrid.html"><img src="//static.msromantic.com/172550/le-rina-ingrid.jpg" alt="Le Rina Ingrid" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73265-le-rina-ingrid.html](https://www.readybrides.com/en/le-rina-wedd-2011/73265-le-rina-ingrid.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-2011/73265-le-rina-ingrid.html"><img src="//static.msromantic.com/172550/le-rina-ingrid.jpg" alt="Le Rina Ingrid" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73265-le-rina-ingrid.html](https://www.antebrands.com/en/le-rina-wedd-2011/73265-le-rina-ingrid.html)

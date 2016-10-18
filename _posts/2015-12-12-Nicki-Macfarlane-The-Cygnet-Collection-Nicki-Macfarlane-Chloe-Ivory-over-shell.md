@@ -9,7 +9,7 @@ tags: [Nicki Macfarlane The Cygnet Collection]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/nicki-macfarlane-the-cygnet-collection/72144-nicki-macfarlane-chloe-ivory-over-shell.html"><img src="//static.msromantic.com/169368/nicki-macfarlane-chloe-ivory-over-shell.jpg" alt="Nicki Macfarlane Chloe - Ivory over shell" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/nicki-macfarlane-the-cygnet-collection/72144-nicki-macfarlane-chloe-ivory-over-shell.html"><img src="//static.msromantic.com/169368/nicki-macfarlane-chloe-ivory-over-shell.jpg" alt="Nicki Macfarlane Chloe - Ivory over shell" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/nicki-macfarlane-the-cygnet-collection/72144-nicki-macfarlane-chloe-ivory-over-shell.html"><img src="//static.msromantic.com/169367/nicki-macfarlane-chloe-ivory-over-shell.jpg" alt="Nicki Macfarlane Chloe - Ivory over shell" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/nicki-macfarlane-the-cygnet-collection/72144-nicki-macfarlane-chloe-ivory-over-shell.html](https://www.readybrides.com/en/nicki-macfarlane-the-cygnet-collection/72144-nicki-macfarlane-chloe-ivory-over-shell.html)
+<!-- break --><a href="https://www.antebrands.com/en/nicki-macfarlane-the-cygnet-collection/72144-nicki-macfarlane-chloe-ivory-over-shell.html"><img src="//static.msromantic.com/169367/nicki-macfarlane-chloe-ivory-over-shell.jpg" alt="Nicki Macfarlane Chloe - Ivory over shell" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/nicki-macfarlane-the-cygnet-collection/72144-nicki-macfarlane-chloe-ivory-over-shell.html](https://www.antebrands.com/en/nicki-macfarlane-the-cygnet-collection/72144-nicki-macfarlane-chloe-ivory-over-shell.html)

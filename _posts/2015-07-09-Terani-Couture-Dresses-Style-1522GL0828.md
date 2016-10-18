@@ -9,7 +9,7 @@ tags: [Terani Couture Dresses]
 Just **$1279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/terani-couture-dresses/75257-terani-couture-dresses-style-1522gl0828.html"><img src="//static.msromantic.com/177813/terani-couture-dresses-style-1522gl0828.jpg" alt="Terani Couture Dresses Style 1522GL0828" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-couture-dresses/75257-terani-couture-dresses-style-1522gl0828.html"><img src="//static.msromantic.com/177813/terani-couture-dresses-style-1522gl0828.jpg" alt="Terani Couture Dresses Style 1522GL0828" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/terani-couture-dresses/75257-terani-couture-dresses-style-1522gl0828.html"><img src="//static.msromantic.com/177812/terani-couture-dresses-style-1522gl0828.jpg" alt="Terani Couture Dresses Style 1522GL0828" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/terani-couture-dresses/75257-terani-couture-dresses-style-1522gl0828.html](https://www.readybrides.com/en/terani-couture-dresses/75257-terani-couture-dresses-style-1522gl0828.html)
+<!-- break --><a href="https://www.antebrands.com/en/terani-couture-dresses/75257-terani-couture-dresses-style-1522gl0828.html"><img src="//static.msromantic.com/177812/terani-couture-dresses-style-1522gl0828.jpg" alt="Terani Couture Dresses Style 1522GL0828" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/terani-couture-dresses/75257-terani-couture-dresses-style-1522gl0828.html](https://www.antebrands.com/en/terani-couture-dresses/75257-terani-couture-dresses-style-1522gl0828.html)

@@ -9,7 +9,7 @@ tags: [Elaya Vaughn 2015 Gown Collection]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73040-elaya-vaughn-ana-gown.html"><img src="//static.msromantic.com/172059/elaya-vaughn-ana-gown.jpg" alt="Elaya Vaughn Ana Gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73040-elaya-vaughn-ana-gown.html"><img src="//static.msromantic.com/172059/elaya-vaughn-ana-gown.jpg" alt="Elaya Vaughn Ana Gown" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73040-elaya-vaughn-ana-gown.html"><img src="//static.msromantic.com/172058/elaya-vaughn-ana-gown.jpg" alt="Elaya Vaughn Ana Gown" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73040-elaya-vaughn-ana-gown.html](https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73040-elaya-vaughn-ana-gown.html)
+<!-- break --><a href="https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73040-elaya-vaughn-ana-gown.html"><img src="//static.msromantic.com/172058/elaya-vaughn-ana-gown.jpg" alt="Elaya Vaughn Ana Gown" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73040-elaya-vaughn-ana-gown.html](https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73040-elaya-vaughn-ana-gown.html)

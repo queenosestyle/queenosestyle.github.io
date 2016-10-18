@@ -9,7 +9,7 @@ tags: [Angelo Bianca]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/angelo-bianca/71758-angelo-bianca-collection-yasmine-05.html"><img src="//static.msromantic.com/168396/angelo-bianca-collection-yasmine-05.jpg" alt="Angelo Bianca Collection Yasmine 05" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/angelo-bianca/71758-angelo-bianca-collection-yasmine-05.html"><img src="//static.msromantic.com/168396/angelo-bianca-collection-yasmine-05.jpg" alt="Angelo Bianca Collection Yasmine 05" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/angelo-bianca/71758-angelo-bianca-collection-yasmine-05.html"><img src="//static.msromantic.com/168395/angelo-bianca-collection-yasmine-05.jpg" alt="Angelo Bianca Collection Yasmine 05" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/angelo-bianca/71758-angelo-bianca-collection-yasmine-05.html](https://www.readybrides.com/en/angelo-bianca/71758-angelo-bianca-collection-yasmine-05.html)
+<!-- break --><a href="https://www.antebrands.com/en/angelo-bianca/71758-angelo-bianca-collection-yasmine-05.html"><img src="//static.msromantic.com/168395/angelo-bianca-collection-yasmine-05.jpg" alt="Angelo Bianca Collection Yasmine 05" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/angelo-bianca/71758-angelo-bianca-collection-yasmine-05.html](https://www.antebrands.com/en/angelo-bianca/71758-angelo-bianca-collection-yasmine-05.html)

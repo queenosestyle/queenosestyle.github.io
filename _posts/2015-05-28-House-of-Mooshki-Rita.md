@@ -9,7 +9,7 @@ tags: [House of Mooshki]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/house-of-mooshki/73814-house-of-mooshki-rita.html"><img src="//static.msromantic.com/173805/house-of-mooshki-rita.jpg" alt="House of Mooshki Rita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/house-of-mooshki/73814-house-of-mooshki-rita.html"><img src="//static.msromantic.com/173805/house-of-mooshki-rita.jpg" alt="House of Mooshki Rita" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/house-of-mooshki/73814-house-of-mooshki-rita.html](https://www.readybrides.com/en/house-of-mooshki/73814-house-of-mooshki-rita.html)
+Buy it: [https://www.antebrands.com/en/house-of-mooshki/73814-house-of-mooshki-rita.html](https://www.antebrands.com/en/house-of-mooshki/73814-house-of-mooshki-rita.html)

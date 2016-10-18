@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73309-le-rina-yliana.html"><img src="//static.msromantic.com/172613/le-rina-yliana.jpg" alt="Le Rina Yliana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73309-le-rina-yliana.html"><img src="//static.msromantic.com/172613/le-rina-yliana.jpg" alt="Le Rina Yliana" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73309-le-rina-yliana.html](https://www.readybrides.com/en/le-rina-wedd-2011/73309-le-rina-yliana.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73309-le-rina-yliana.html](https://www.antebrands.com/en/le-rina-wedd-2011/73309-le-rina-yliana.html)

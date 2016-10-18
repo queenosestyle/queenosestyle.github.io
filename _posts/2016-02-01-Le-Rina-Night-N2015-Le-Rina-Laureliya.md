@@ -9,7 +9,7 @@ tags: [Le Rina Night N2015]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-night-n2015/73129-le-rina-laureliya-dlinnoe.html"><img src="//static.msromantic.com/172245/le-rina-laureliya-dlinnoe.jpg" alt="Le Rina Laureliya (длинное)" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-night-n2015/73129-le-rina-laureliya-dlinnoe.html"><img src="//static.msromantic.com/172245/le-rina-laureliya-dlinnoe.jpg" alt="Le Rina Laureliya (длинное)" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-night-n2015/73129-le-rina-laureliya-dlinnoe.html](https://www.readybrides.com/en/le-rina-night-n2015/73129-le-rina-laureliya-dlinnoe.html)
+Buy it: [https://www.antebrands.com/en/le-rina-night-n2015/73129-le-rina-laureliya-dlinnoe.html](https://www.antebrands.com/en/le-rina-night-n2015/73129-le-rina-laureliya-dlinnoe.html)

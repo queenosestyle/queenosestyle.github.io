@@ -9,7 +9,7 @@ tags: [Adrianna Papell]
 Just **$150.00**
 ### 
 
-<a href="https://www.readybrides.com/en/adrianna-papell/75709-adrianna-papell-vintage-floral-lace-dress.html"><img src="//static.msromantic.com/178924/adrianna-papell-vintage-floral-lace-dress.jpg" alt="Adrianna Papell Vintage Floral Lace Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adrianna-papell/75709-adrianna-papell-vintage-floral-lace-dress.html"><img src="//static.msromantic.com/178924/adrianna-papell-vintage-floral-lace-dress.jpg" alt="Adrianna Papell Vintage Floral Lace Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adrianna-papell/75709-adrianna-papell-vintage-floral-lace-dress.html"><img src="//static.msromantic.com/178923/adrianna-papell-vintage-floral-lace-dress.jpg" alt="Adrianna Papell Vintage Floral Lace Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adrianna-papell/75709-adrianna-papell-vintage-floral-lace-dress.html](https://www.readybrides.com/en/adrianna-papell/75709-adrianna-papell-vintage-floral-lace-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/adrianna-papell/75709-adrianna-papell-vintage-floral-lace-dress.html"><img src="//static.msromantic.com/178923/adrianna-papell-vintage-floral-lace-dress.jpg" alt="Adrianna Papell Vintage Floral Lace Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adrianna-papell/75709-adrianna-papell-vintage-floral-lace-dress.html](https://www.antebrands.com/en/adrianna-papell/75709-adrianna-papell-vintage-floral-lace-dress.html)

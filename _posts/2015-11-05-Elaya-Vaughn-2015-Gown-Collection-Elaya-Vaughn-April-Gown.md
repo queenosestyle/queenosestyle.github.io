@@ -9,7 +9,7 @@ tags: [Elaya Vaughn 2015 Gown Collection]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73041-elaya-vaughn-april-gown.html"><img src="//static.msromantic.com/172061/elaya-vaughn-april-gown.jpg" alt="Elaya Vaughn April Gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73041-elaya-vaughn-april-gown.html"><img src="//static.msromantic.com/172061/elaya-vaughn-april-gown.jpg" alt="Elaya Vaughn April Gown" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73041-elaya-vaughn-april-gown.html"><img src="//static.msromantic.com/172060/elaya-vaughn-april-gown.jpg" alt="Elaya Vaughn April Gown" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73041-elaya-vaughn-april-gown.html](https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73041-elaya-vaughn-april-gown.html)
+<!-- break --><a href="https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73041-elaya-vaughn-april-gown.html"><img src="//static.msromantic.com/172060/elaya-vaughn-april-gown.jpg" alt="Elaya Vaughn April Gown" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73041-elaya-vaughn-april-gown.html](https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73041-elaya-vaughn-april-gown.html)

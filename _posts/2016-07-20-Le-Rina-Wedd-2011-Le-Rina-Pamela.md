@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73299-le-rina-pamela.html"><img src="//static.msromantic.com/172600/le-rina-pamela.jpg" alt="Le Rina Pamela" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73299-le-rina-pamela.html"><img src="//static.msromantic.com/172600/le-rina-pamela.jpg" alt="Le Rina Pamela" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73299-le-rina-pamela.html](https://www.readybrides.com/en/le-rina-wedd-2011/73299-le-rina-pamela.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73299-le-rina-pamela.html](https://www.antebrands.com/en/le-rina-wedd-2011/73299-le-rina-pamela.html)

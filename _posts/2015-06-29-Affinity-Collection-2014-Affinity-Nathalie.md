@@ -9,7 +9,7 @@ tags: [Affinity Collection 2014]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2014/72445-affinity-nathalie.html"><img src="//static.msromantic.com/170279/affinity-nathalie.jpg" alt="Affinity Nathalie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2014/72445-affinity-nathalie.html"><img src="//static.msromantic.com/170279/affinity-nathalie.jpg" alt="Affinity Nathalie" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/affinity-collection-2014/72445-affinity-nathalie.html"><img src="//static.msromantic.com/170278/affinity-nathalie.jpg" alt="Affinity Nathalie" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/affinity-collection-2014/72445-affinity-nathalie.html](https://www.readybrides.com/en/affinity-collection-2014/72445-affinity-nathalie.html)
+<!-- break --><a href="https://www.antebrands.com/en/affinity-collection-2014/72445-affinity-nathalie.html"><img src="//static.msromantic.com/170278/affinity-nathalie.jpg" alt="Affinity Nathalie" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/affinity-collection-2014/72445-affinity-nathalie.html](https://www.antebrands.com/en/affinity-collection-2014/72445-affinity-nathalie.html)

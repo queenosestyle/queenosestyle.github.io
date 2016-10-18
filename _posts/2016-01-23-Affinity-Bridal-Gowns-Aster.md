@@ -9,7 +9,7 @@ tags: [Affinity]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity/71719-affinity-bridal-gowns-aster.html"><img src="//static.msromantic.com/168325/affinity-bridal-gowns-aster.jpg" alt="Affinity Bridal Gowns Aster" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity/71719-affinity-bridal-gowns-aster.html"><img src="//static.msromantic.com/168325/affinity-bridal-gowns-aster.jpg" alt="Affinity Bridal Gowns Aster" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity/71719-affinity-bridal-gowns-aster.html](https://www.readybrides.com/en/affinity/71719-affinity-bridal-gowns-aster.html)
+Buy it: [https://www.antebrands.com/en/affinity/71719-affinity-bridal-gowns-aster.html](https://www.antebrands.com/en/affinity/71719-affinity-bridal-gowns-aster.html)

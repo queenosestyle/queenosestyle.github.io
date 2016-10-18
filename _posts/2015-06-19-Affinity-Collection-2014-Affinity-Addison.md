@@ -9,7 +9,7 @@ tags: [Affinity Collection 2014]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2014/72435-affinity-addison.html"><img src="//static.msromantic.com/170262/affinity-addison.jpg" alt="Affinity Addison" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2014/72435-affinity-addison.html"><img src="//static.msromantic.com/170262/affinity-addison.jpg" alt="Affinity Addison" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/affinity-collection-2014/72435-affinity-addison.html"><img src="//static.msromantic.com/170261/affinity-addison.jpg" alt="Affinity Addison" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/affinity-collection-2014/72435-affinity-addison.html](https://www.readybrides.com/en/affinity-collection-2014/72435-affinity-addison.html)
+<!-- break --><a href="https://www.antebrands.com/en/affinity-collection-2014/72435-affinity-addison.html"><img src="//static.msromantic.com/170261/affinity-addison.jpg" alt="Affinity Addison" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/affinity-collection-2014/72435-affinity-addison.html](https://www.antebrands.com/en/affinity-collection-2014/72435-affinity-addison.html)

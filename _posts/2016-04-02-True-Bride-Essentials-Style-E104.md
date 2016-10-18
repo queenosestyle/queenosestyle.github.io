@@ -9,7 +9,7 @@ tags: [True Bride Essentials]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-essentials/72723-true-bride-essentials-style-e104.html"><img src="//static.msromantic.com/170930/true-bride-essentials-style-e104.jpg" alt="True Bride Essentials Style E104" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-essentials/72723-true-bride-essentials-style-e104.html"><img src="//static.msromantic.com/170930/true-bride-essentials-style-e104.jpg" alt="True Bride Essentials Style E104" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/true-bride-essentials/72723-true-bride-essentials-style-e104.html](https://www.readybrides.com/en/true-bride-essentials/72723-true-bride-essentials-style-e104.html)
+Buy it: [https://www.antebrands.com/en/true-bride-essentials/72723-true-bride-essentials-style-e104.html](https://www.antebrands.com/en/true-bride-essentials/72723-true-bride-essentials-style-e104.html)

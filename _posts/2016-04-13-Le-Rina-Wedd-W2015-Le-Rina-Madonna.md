@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73201-le-rina-madonna.html"><img src="//static.msromantic.com/172384/le-rina-madonna.jpg" alt="Le Rina Madonna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73201-le-rina-madonna.html"><img src="//static.msromantic.com/172384/le-rina-madonna.jpg" alt="Le Rina Madonna" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73201-le-rina-madonna.html"><img src="//static.msromantic.com/172383/le-rina-madonna.jpg" alt="Le Rina Madonna" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73201-le-rina-madonna.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73201-le-rina-madonna.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73201-le-rina-madonna.html"><img src="//static.msromantic.com/172383/le-rina-madonna.jpg" alt="Le Rina Madonna" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73201-le-rina-madonna.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73201-le-rina-madonna.html)

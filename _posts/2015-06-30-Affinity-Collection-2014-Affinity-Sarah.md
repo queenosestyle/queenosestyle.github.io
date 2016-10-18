@@ -9,7 +9,7 @@ tags: [Affinity Collection 2014]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2014/72446-affinity-sarah.html"><img src="//static.msromantic.com/170280/affinity-sarah.jpg" alt="Affinity Sarah" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2014/72446-affinity-sarah.html"><img src="//static.msromantic.com/170280/affinity-sarah.jpg" alt="Affinity Sarah" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity-collection-2014/72446-affinity-sarah.html](https://www.readybrides.com/en/affinity-collection-2014/72446-affinity-sarah.html)
+Buy it: [https://www.antebrands.com/en/affinity-collection-2014/72446-affinity-sarah.html](https://www.antebrands.com/en/affinity-collection-2014/72446-affinity-sarah.html)

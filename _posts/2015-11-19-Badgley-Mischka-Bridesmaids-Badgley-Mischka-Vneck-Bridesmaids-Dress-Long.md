@@ -9,7 +9,7 @@ tags: [Badgley Mischka Bridesmaids]
 Just **$209.99**
 ### 
 
-<a href="https://www.readybrides.com/en/badgley-mischka-bridesmaids/72121-badgley-mischka-v-neck-bridesmaids-dress-long.html"><img src="//static.msromantic.com/169327/badgley-mischka-v-neck-bridesmaids-dress-long.jpg" alt="Badgley Mischka V-neck Bridesmaids Dress Long" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/badgley-mischka-bridesmaids/72121-badgley-mischka-v-neck-bridesmaids-dress-long.html"><img src="//static.msromantic.com/169327/badgley-mischka-v-neck-bridesmaids-dress-long.jpg" alt="Badgley Mischka V-neck Bridesmaids Dress Long" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/badgley-mischka-bridesmaids/72121-badgley-mischka-v-neck-bridesmaids-dress-long.html](https://www.readybrides.com/en/badgley-mischka-bridesmaids/72121-badgley-mischka-v-neck-bridesmaids-dress-long.html)
+Buy it: [https://www.antebrands.com/en/badgley-mischka-bridesmaids/72121-badgley-mischka-v-neck-bridesmaids-dress-long.html](https://www.antebrands.com/en/badgley-mischka-bridesmaids/72121-badgley-mischka-v-neck-bridesmaids-dress-long.html)

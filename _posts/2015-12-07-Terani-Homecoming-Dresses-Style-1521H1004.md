@@ -9,7 +9,7 @@ tags: [Terani Homecoming Dresses]
 Just **$799.99**
 ### 
 
-<a href="https://www.readybrides.com/en/terani-homecoming-dresses/75408-terani-homecoming-dresses-style-1521h1004.html"><img src="//static.msromantic.com/178270/terani-homecoming-dresses-style-1521h1004.jpg" alt="Terani Homecoming Dresses Style 1521H1004" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-homecoming-dresses/75408-terani-homecoming-dresses-style-1521h1004.html"><img src="//static.msromantic.com/178270/terani-homecoming-dresses-style-1521h1004.jpg" alt="Terani Homecoming Dresses Style 1521H1004" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/terani-homecoming-dresses/75408-terani-homecoming-dresses-style-1521h1004.html"><img src="//static.msromantic.com/178269/terani-homecoming-dresses-style-1521h1004.jpg" alt="Terani Homecoming Dresses Style 1521H1004" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/terani-homecoming-dresses/75408-terani-homecoming-dresses-style-1521h1004.html](https://www.readybrides.com/en/terani-homecoming-dresses/75408-terani-homecoming-dresses-style-1521h1004.html)
+<!-- break --><a href="https://www.antebrands.com/en/terani-homecoming-dresses/75408-terani-homecoming-dresses-style-1521h1004.html"><img src="//static.msromantic.com/178269/terani-homecoming-dresses-style-1521h1004.jpg" alt="Terani Homecoming Dresses Style 1521H1004" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/terani-homecoming-dresses/75408-terani-homecoming-dresses-style-1521h1004.html](https://www.antebrands.com/en/terani-homecoming-dresses/75408-terani-homecoming-dresses-style-1521h1004.html)

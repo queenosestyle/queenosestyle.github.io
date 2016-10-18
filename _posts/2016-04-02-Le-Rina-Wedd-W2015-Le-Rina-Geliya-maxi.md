@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73190-le-rina-geliya-maxi.html"><img src="//static.msromantic.com/172362/le-rina-geliya-maxi.jpg" alt="Le Rina Geliya maxi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73190-le-rina-geliya-maxi.html"><img src="//static.msromantic.com/172362/le-rina-geliya-maxi.jpg" alt="Le Rina Geliya maxi" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73190-le-rina-geliya-maxi.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73190-le-rina-geliya-maxi.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73190-le-rina-geliya-maxi.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73190-le-rina-geliya-maxi.html)

@@ -9,7 +9,7 @@ tags: [Terani Short Dresses]
 Just **$459.99**
 ### 
 
-<a href="https://www.readybrides.com/en/terani-short-dresses/75146-terani-short-dresses-style-1521c0214.html"><img src="//static.msromantic.com/177509/terani-short-dresses-style-1521c0214.jpg" alt="Terani Short Dresses Style 1521C0214" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-short-dresses/75146-terani-short-dresses-style-1521c0214.html"><img src="//static.msromantic.com/177509/terani-short-dresses-style-1521c0214.jpg" alt="Terani Short Dresses Style 1521C0214" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/terani-short-dresses/75146-terani-short-dresses-style-1521c0214.html"><img src="//static.msromantic.com/177508/terani-short-dresses-style-1521c0214.jpg" alt="Terani Short Dresses Style 1521C0214" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/terani-short-dresses/75146-terani-short-dresses-style-1521c0214.html](https://www.readybrides.com/en/terani-short-dresses/75146-terani-short-dresses-style-1521c0214.html)
+<!-- break --><a href="https://www.antebrands.com/en/terani-short-dresses/75146-terani-short-dresses-style-1521c0214.html"><img src="//static.msromantic.com/177508/terani-short-dresses-style-1521c0214.jpg" alt="Terani Short Dresses Style 1521C0214" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/terani-short-dresses/75146-terani-short-dresses-style-1521c0214.html](https://www.antebrands.com/en/terani-short-dresses/75146-terani-short-dresses-style-1521c0214.html)

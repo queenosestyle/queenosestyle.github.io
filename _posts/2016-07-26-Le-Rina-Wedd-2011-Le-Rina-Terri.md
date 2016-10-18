@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73305-le-rina-terri.html"><img src="//static.msromantic.com/172607/le-rina-terri.jpg" alt="Le Rina Terri" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73305-le-rina-terri.html"><img src="//static.msromantic.com/172607/le-rina-terri.jpg" alt="Le Rina Terri" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73305-le-rina-terri.html](https://www.readybrides.com/en/le-rina-wedd-2011/73305-le-rina-terri.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73305-le-rina-terri.html](https://www.antebrands.com/en/le-rina-wedd-2011/73305-le-rina-terri.html)

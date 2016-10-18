@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73294-le-rina-margarita.html"><img src="//static.msromantic.com/172594/le-rina-margarita.jpg" alt="Le Rina Margarita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73294-le-rina-margarita.html"><img src="//static.msromantic.com/172594/le-rina-margarita.jpg" alt="Le Rina Margarita" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73294-le-rina-margarita.html](https://www.readybrides.com/en/le-rina-wedd-2011/73294-le-rina-margarita.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73294-le-rina-margarita.html](https://www.antebrands.com/en/le-rina-wedd-2011/73294-le-rina-margarita.html)

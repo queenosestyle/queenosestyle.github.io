@@ -9,7 +9,7 @@ tags: [Angelo Bianca]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/angelo-bianca/71760-angelo-bianca-collection-yasmine-03.html"><img src="//static.msromantic.com/168399/angelo-bianca-collection-yasmine-03.jpg" alt="Angelo Bianca Collection Yasmine 03" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/angelo-bianca/71760-angelo-bianca-collection-yasmine-03.html"><img src="//static.msromantic.com/168399/angelo-bianca-collection-yasmine-03.jpg" alt="Angelo Bianca Collection Yasmine 03" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/angelo-bianca/71760-angelo-bianca-collection-yasmine-03.html](https://www.readybrides.com/en/angelo-bianca/71760-angelo-bianca-collection-yasmine-03.html)
+Buy it: [https://www.antebrands.com/en/angelo-bianca/71760-angelo-bianca-collection-yasmine-03.html](https://www.antebrands.com/en/angelo-bianca/71760-angelo-bianca-collection-yasmine-03.html)

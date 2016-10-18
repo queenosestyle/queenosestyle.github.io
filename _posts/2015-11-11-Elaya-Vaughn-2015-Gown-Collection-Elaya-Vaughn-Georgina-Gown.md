@@ -9,7 +9,7 @@ tags: [Elaya Vaughn 2015 Gown Collection]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73047-elaya-vaughn-georgina-gown.html"><img src="//static.msromantic.com/172073/elaya-vaughn-georgina-gown.jpg" alt="Elaya Vaughn Georgina Gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73047-elaya-vaughn-georgina-gown.html"><img src="//static.msromantic.com/172073/elaya-vaughn-georgina-gown.jpg" alt="Elaya Vaughn Georgina Gown" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73047-elaya-vaughn-georgina-gown.html"><img src="//static.msromantic.com/172072/elaya-vaughn-georgina-gown.jpg" alt="Elaya Vaughn Georgina Gown" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73047-elaya-vaughn-georgina-gown.html](https://www.readybrides.com/en/elaya-vaughn-2015-gown-collection/73047-elaya-vaughn-georgina-gown.html)
+<!-- break --><a href="https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73047-elaya-vaughn-georgina-gown.html"><img src="//static.msromantic.com/172072/elaya-vaughn-georgina-gown.jpg" alt="Elaya Vaughn Georgina Gown" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73047-elaya-vaughn-georgina-gown.html](https://www.antebrands.com/en/elaya-vaughn-2015-gown-collection/73047-elaya-vaughn-georgina-gown.html)

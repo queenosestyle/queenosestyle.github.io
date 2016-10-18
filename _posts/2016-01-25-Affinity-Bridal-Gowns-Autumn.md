@@ -9,7 +9,7 @@ tags: [Affinity]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity/71721-affinity-bridal-gowns-autumn.html"><img src="//static.msromantic.com/168327/affinity-bridal-gowns-autumn.jpg" alt="Affinity Bridal Gowns Autumn" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity/71721-affinity-bridal-gowns-autumn.html"><img src="//static.msromantic.com/168327/affinity-bridal-gowns-autumn.jpg" alt="Affinity Bridal Gowns Autumn" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity/71721-affinity-bridal-gowns-autumn.html](https://www.readybrides.com/en/affinity/71721-affinity-bridal-gowns-autumn.html)
+Buy it: [https://www.antebrands.com/en/affinity/71721-affinity-bridal-gowns-autumn.html](https://www.antebrands.com/en/affinity/71721-affinity-bridal-gowns-autumn.html)

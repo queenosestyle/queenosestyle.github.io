@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73207-le-rina-olimpiya.html"><img src="//static.msromantic.com/172394/le-rina-olimpiya.jpg" alt="Le Rina Olimpiya" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73207-le-rina-olimpiya.html"><img src="//static.msromantic.com/172394/le-rina-olimpiya.jpg" alt="Le Rina Olimpiya" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73207-le-rina-olimpiya.html"><img src="//static.msromantic.com/172393/le-rina-olimpiya.jpg" alt="Le Rina Olimpiya" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73207-le-rina-olimpiya.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73207-le-rina-olimpiya.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73207-le-rina-olimpiya.html"><img src="//static.msromantic.com/172393/le-rina-olimpiya.jpg" alt="Le Rina Olimpiya" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73207-le-rina-olimpiya.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73207-le-rina-olimpiya.html)

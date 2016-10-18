@@ -9,7 +9,7 @@ tags: [Le Rina Child]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-child/73145-le-rina-anita.html"><img src="//static.msromantic.com/172268/le-rina-anita.jpg" alt="Le Rina Anita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-child/73145-le-rina-anita.html"><img src="//static.msromantic.com/172268/le-rina-anita.jpg" alt="Le Rina Anita" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-child/73145-le-rina-anita.html](https://www.readybrides.com/en/le-rina-child/73145-le-rina-anita.html)
+Buy it: [https://www.antebrands.com/en/le-rina-child/73145-le-rina-anita.html](https://www.antebrands.com/en/le-rina-child/73145-le-rina-anita.html)

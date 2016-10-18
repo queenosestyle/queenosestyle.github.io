@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73186-le-rina-etna.html"><img src="//static.msromantic.com/172354/le-rina-etna.jpg" alt="Le Rina Etna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73186-le-rina-etna.html"><img src="//static.msromantic.com/172354/le-rina-etna.jpg" alt="Le Rina Etna" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73186-le-rina-etna.html"><img src="//static.msromantic.com/172353/le-rina-etna.jpg" alt="Le Rina Etna" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73186-le-rina-etna.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73186-le-rina-etna.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73186-le-rina-etna.html"><img src="//static.msromantic.com/172353/le-rina-etna.jpg" alt="Le Rina Etna" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73186-le-rina-etna.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73186-le-rina-etna.html)

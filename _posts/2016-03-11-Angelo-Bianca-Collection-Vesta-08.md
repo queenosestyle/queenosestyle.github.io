@@ -9,7 +9,7 @@ tags: [Angelo Bianca]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/angelo-bianca/71767-angelo-bianca-collection-vesta-08.html"><img src="//static.msromantic.com/168411/angelo-bianca-collection-vesta-08.jpg" alt="Angelo Bianca Collection Vesta 08" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/angelo-bianca/71767-angelo-bianca-collection-vesta-08.html"><img src="//static.msromantic.com/168411/angelo-bianca-collection-vesta-08.jpg" alt="Angelo Bianca Collection Vesta 08" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/angelo-bianca/71767-angelo-bianca-collection-vesta-08.html"><img src="//static.msromantic.com/168410/angelo-bianca-collection-vesta-08.jpg" alt="Angelo Bianca Collection Vesta 08" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/angelo-bianca/71767-angelo-bianca-collection-vesta-08.html](https://www.readybrides.com/en/angelo-bianca/71767-angelo-bianca-collection-vesta-08.html)
+<!-- break --><a href="https://www.antebrands.com/en/angelo-bianca/71767-angelo-bianca-collection-vesta-08.html"><img src="//static.msromantic.com/168410/angelo-bianca-collection-vesta-08.jpg" alt="Angelo Bianca Collection Vesta 08" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/angelo-bianca/71767-angelo-bianca-collection-vesta-08.html](https://www.antebrands.com/en/angelo-bianca/71767-angelo-bianca-collection-vesta-08.html)

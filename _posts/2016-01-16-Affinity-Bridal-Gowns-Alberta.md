@@ -9,7 +9,7 @@ tags: [Affinity]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity/71712-affinity-bridal-gowns-alberta.html"><img src="//static.msromantic.com/168310/affinity-bridal-gowns-alberta.jpg" alt="Affinity Bridal Gowns Alberta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity/71712-affinity-bridal-gowns-alberta.html"><img src="//static.msromantic.com/168310/affinity-bridal-gowns-alberta.jpg" alt="Affinity Bridal Gowns Alberta" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity/71712-affinity-bridal-gowns-alberta.html](https://www.readybrides.com/en/affinity/71712-affinity-bridal-gowns-alberta.html)
+Buy it: [https://www.antebrands.com/en/affinity/71712-affinity-bridal-gowns-alberta.html](https://www.antebrands.com/en/affinity/71712-affinity-bridal-gowns-alberta.html)

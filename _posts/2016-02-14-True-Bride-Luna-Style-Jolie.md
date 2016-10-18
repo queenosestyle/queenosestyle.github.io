@@ -9,7 +9,7 @@ tags: [True Bride Luna]
 Just **$219.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-luna/72675-true-bride-luna-style-jolie.html"><img src="//static.msromantic.com/170839/true-bride-luna-style-jolie.jpg" alt="True Bride Luna Style Jolie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-luna/72675-true-bride-luna-style-jolie.html"><img src="//static.msromantic.com/170839/true-bride-luna-style-jolie.jpg" alt="True Bride Luna Style Jolie" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/true-bride-luna/72675-true-bride-luna-style-jolie.html](https://www.readybrides.com/en/true-bride-luna/72675-true-bride-luna-style-jolie.html)
+Buy it: [https://www.antebrands.com/en/true-bride-luna/72675-true-bride-luna-style-jolie.html](https://www.antebrands.com/en/true-bride-luna/72675-true-bride-luna-style-jolie.html)

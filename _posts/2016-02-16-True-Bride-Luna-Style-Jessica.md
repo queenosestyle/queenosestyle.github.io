@@ -9,7 +9,7 @@ tags: [True Bride Luna]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-luna/72677-true-bride-luna-style-jessica.html"><img src="//static.msromantic.com/170842/true-bride-luna-style-jessica.jpg" alt="True Bride Luna Style Jessica" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-luna/72677-true-bride-luna-style-jessica.html"><img src="//static.msromantic.com/170842/true-bride-luna-style-jessica.jpg" alt="True Bride Luna Style Jessica" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/true-bride-luna/72677-true-bride-luna-style-jessica.html](https://www.readybrides.com/en/true-bride-luna/72677-true-bride-luna-style-jessica.html)
+Buy it: [https://www.antebrands.com/en/true-bride-luna/72677-true-bride-luna-style-jessica.html](https://www.antebrands.com/en/true-bride-luna/72677-true-bride-luna-style-jessica.html)

@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73176-le-rina-atlanta.html"><img src="//static.msromantic.com/172334/le-rina-atlanta.jpg" alt="Le Rina Atlanta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73176-le-rina-atlanta.html"><img src="//static.msromantic.com/172334/le-rina-atlanta.jpg" alt="Le Rina Atlanta" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73176-le-rina-atlanta.html"><img src="//static.msromantic.com/172333/le-rina-atlanta.jpg" alt="Le Rina Atlanta" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73176-le-rina-atlanta.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73176-le-rina-atlanta.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73176-le-rina-atlanta.html"><img src="//static.msromantic.com/172333/le-rina-atlanta.jpg" alt="Le Rina Atlanta" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73176-le-rina-atlanta.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73176-le-rina-atlanta.html)

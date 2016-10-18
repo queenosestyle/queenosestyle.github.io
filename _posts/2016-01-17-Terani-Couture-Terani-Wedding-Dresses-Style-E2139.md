@@ -9,8 +9,8 @@ tags: [Terani Couture]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/terani-couture/75449-terani-wedding-dresses-style-e2139.html"><img src="//static.msromantic.com/178375/terani-wedding-dresses-style-e2139.jpg" alt="Terani Wedding Dresses Style E2139" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-couture/75449-terani-wedding-dresses-style-e2139.html"><img src="//static.msromantic.com/178375/terani-wedding-dresses-style-e2139.jpg" alt="Terani Wedding Dresses Style E2139" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/terani-couture/75449-terani-wedding-dresses-style-e2139.html"><img src="//static.msromantic.com/178376/terani-wedding-dresses-style-e2139.jpg" alt="Terani Wedding Dresses Style E2139" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/terani-couture/75449-terani-wedding-dresses-style-e2139.html"><img src="//static.msromantic.com/178374/terani-wedding-dresses-style-e2139.jpg" alt="Terani Wedding Dresses Style E2139" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/terani-couture/75449-terani-wedding-dresses-style-e2139.html](https://www.readybrides.com/en/terani-couture/75449-terani-wedding-dresses-style-e2139.html)
+<!-- break --><a href="https://www.antebrands.com/en/terani-couture/75449-terani-wedding-dresses-style-e2139.html"><img src="//static.msromantic.com/178376/terani-wedding-dresses-style-e2139.jpg" alt="Terani Wedding Dresses Style E2139" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/terani-couture/75449-terani-wedding-dresses-style-e2139.html"><img src="//static.msromantic.com/178374/terani-wedding-dresses-style-e2139.jpg" alt="Terani Wedding Dresses Style E2139" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/terani-couture/75449-terani-wedding-dresses-style-e2139.html](https://www.antebrands.com/en/terani-couture/75449-terani-wedding-dresses-style-e2139.html)

@@ -9,7 +9,7 @@ tags: [Affinity Collection 2014]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2014/72451-affinity-virginia.html"><img src="//static.msromantic.com/170286/affinity-virginia.jpg" alt="Affinity Virginia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2014/72451-affinity-virginia.html"><img src="//static.msromantic.com/170286/affinity-virginia.jpg" alt="Affinity Virginia" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity-collection-2014/72451-affinity-virginia.html](https://www.readybrides.com/en/affinity-collection-2014/72451-affinity-virginia.html)
+Buy it: [https://www.antebrands.com/en/affinity-collection-2014/72451-affinity-virginia.html](https://www.antebrands.com/en/affinity-collection-2014/72451-affinity-virginia.html)

@@ -9,7 +9,7 @@ tags: [True Bride True Bridesmaids]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-true-bridesmaids/72601-true-bride-true-bridesmaids-style-m672.html"><img src="//static.msromantic.com/170658/true-bride-true-bridesmaids-style-m672.jpg" alt="True Bride True Bridesmaids Style M672" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-true-bridesmaids/72601-true-bride-true-bridesmaids-style-m672.html"><img src="//static.msromantic.com/170658/true-bride-true-bridesmaids-style-m672.jpg" alt="True Bride True Bridesmaids Style M672" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/true-bride-true-bridesmaids/72601-true-bride-true-bridesmaids-style-m672.html"><img src="//static.msromantic.com/170657/true-bride-true-bridesmaids-style-m672.jpg" alt="True Bride True Bridesmaids Style M672" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/true-bride-true-bridesmaids/72601-true-bride-true-bridesmaids-style-m672.html](https://www.readybrides.com/en/true-bride-true-bridesmaids/72601-true-bride-true-bridesmaids-style-m672.html)
+<!-- break --><a href="https://www.antebrands.com/en/true-bride-true-bridesmaids/72601-true-bride-true-bridesmaids-style-m672.html"><img src="//static.msromantic.com/170657/true-bride-true-bridesmaids-style-m672.jpg" alt="True Bride True Bridesmaids Style M672" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/true-bride-true-bridesmaids/72601-true-bride-true-bridesmaids-style-m672.html](https://www.antebrands.com/en/true-bride-true-bridesmaids/72601-true-bride-true-bridesmaids-style-m672.html)

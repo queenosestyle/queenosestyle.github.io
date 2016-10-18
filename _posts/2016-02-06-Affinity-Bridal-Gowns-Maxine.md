@@ -9,7 +9,7 @@ tags: [Affinity]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity/71733-affinity-bridal-gowns-maxine.html"><img src="//static.msromantic.com/168348/affinity-bridal-gowns-maxine.jpg" alt="Affinity Bridal Gowns Maxine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity/71733-affinity-bridal-gowns-maxine.html"><img src="//static.msromantic.com/168348/affinity-bridal-gowns-maxine.jpg" alt="Affinity Bridal Gowns Maxine" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/affinity/71733-affinity-bridal-gowns-maxine.html](https://www.readybrides.com/en/affinity/71733-affinity-bridal-gowns-maxine.html)
+Buy it: [https://www.antebrands.com/en/affinity/71733-affinity-bridal-gowns-maxine.html](https://www.antebrands.com/en/affinity/71733-affinity-bridal-gowns-maxine.html)

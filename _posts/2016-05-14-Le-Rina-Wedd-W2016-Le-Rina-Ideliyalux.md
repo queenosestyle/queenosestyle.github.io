@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2016]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2016/73232-le-rina-ideliya-lux.html"><img src="//static.msromantic.com/172460/le-rina-ideliya-lux.jpg" alt="Le Rina Ideliya-lux" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2016/73232-le-rina-ideliya-lux.html"><img src="//static.msromantic.com/172460/le-rina-ideliya-lux.jpg" alt="Le Rina Ideliya-lux" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2016/73232-le-rina-ideliya-lux.html"><img src="//static.msromantic.com/172459/le-rina-ideliya-lux.jpg" alt="Le Rina Ideliya-lux" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2016/73232-le-rina-ideliya-lux.html](https://www.readybrides.com/en/le-rina-wedd-w2016/73232-le-rina-ideliya-lux.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2016/73232-le-rina-ideliya-lux.html"><img src="//static.msromantic.com/172459/le-rina-ideliya-lux.jpg" alt="Le Rina Ideliya-lux" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2016/73232-le-rina-ideliya-lux.html](https://www.antebrands.com/en/le-rina-wedd-w2016/73232-le-rina-ideliya-lux.html)

@@ -9,7 +9,7 @@ tags: [Affinity Collection 2014]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2014/72448-affinity-suzy.html"><img src="//static.msromantic.com/170283/affinity-suzy.jpg" alt="Affinity Suzy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2014/72448-affinity-suzy.html"><img src="//static.msromantic.com/170283/affinity-suzy.jpg" alt="Affinity Suzy" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/affinity-collection-2014/72448-affinity-suzy.html"><img src="//static.msromantic.com/170282/affinity-suzy.jpg" alt="Affinity Suzy" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/affinity-collection-2014/72448-affinity-suzy.html](https://www.readybrides.com/en/affinity-collection-2014/72448-affinity-suzy.html)
+<!-- break --><a href="https://www.antebrands.com/en/affinity-collection-2014/72448-affinity-suzy.html"><img src="//static.msromantic.com/170282/affinity-suzy.jpg" alt="Affinity Suzy" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/affinity-collection-2014/72448-affinity-suzy.html](https://www.antebrands.com/en/affinity-collection-2014/72448-affinity-suzy.html)

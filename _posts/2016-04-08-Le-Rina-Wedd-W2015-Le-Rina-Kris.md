@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73196-le-rina-kris.html"><img src="//static.msromantic.com/172374/le-rina-kris.jpg" alt="Le Rina Kris" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73196-le-rina-kris.html"><img src="//static.msromantic.com/172374/le-rina-kris.jpg" alt="Le Rina Kris" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73196-le-rina-kris.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73196-le-rina-kris.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73196-le-rina-kris.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73196-le-rina-kris.html)

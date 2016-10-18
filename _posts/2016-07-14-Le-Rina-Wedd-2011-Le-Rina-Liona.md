@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73293-le-rina-liona.html"><img src="//static.msromantic.com/172593/le-rina-liona.jpg" alt="Le Rina Liona" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73293-le-rina-liona.html"><img src="//static.msromantic.com/172593/le-rina-liona.jpg" alt="Le Rina Liona" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-2011/73293-le-rina-liona.html"><img src="//static.msromantic.com/172592/le-rina-liona.jpg" alt="Le Rina Liona" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73293-le-rina-liona.html](https://www.readybrides.com/en/le-rina-wedd-2011/73293-le-rina-liona.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-2011/73293-le-rina-liona.html"><img src="//static.msromantic.com/172592/le-rina-liona.jpg" alt="Le Rina Liona" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73293-le-rina-liona.html](https://www.antebrands.com/en/le-rina-wedd-2011/73293-le-rina-liona.html)

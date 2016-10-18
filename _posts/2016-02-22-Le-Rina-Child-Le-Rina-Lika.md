@@ -9,7 +9,7 @@ tags: [Le Rina Child]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-child/73150-le-rina-lika.html"><img src="//static.msromantic.com/172276/le-rina-lika.jpg" alt="Le Rina Lika" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-child/73150-le-rina-lika.html"><img src="//static.msromantic.com/172276/le-rina-lika.jpg" alt="Le Rina Lika" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-child/73150-le-rina-lika.html](https://www.readybrides.com/en/le-rina-child/73150-le-rina-lika.html)
+Buy it: [https://www.antebrands.com/en/le-rina-child/73150-le-rina-lika.html](https://www.antebrands.com/en/le-rina-child/73150-le-rina-lika.html)

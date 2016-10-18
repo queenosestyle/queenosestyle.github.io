@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2016]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2016/73216-le-rina-alma.html"><img src="//static.msromantic.com/172414/le-rina-alma.jpg" alt="Le Rina Alma" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2016/73216-le-rina-alma.html"><img src="//static.msromantic.com/172414/le-rina-alma.jpg" alt="Le Rina Alma" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2016/73216-le-rina-alma.html](https://www.readybrides.com/en/le-rina-wedd-w2016/73216-le-rina-alma.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2016/73216-le-rina-alma.html](https://www.antebrands.com/en/le-rina-wedd-w2016/73216-le-rina-alma.html)

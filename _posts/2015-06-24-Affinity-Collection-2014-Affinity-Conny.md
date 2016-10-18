@@ -9,7 +9,7 @@ tags: [Affinity Collection 2014]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/affinity-collection-2014/72440-affinity-conny.html"><img src="//static.msromantic.com/170272/affinity-conny.jpg" alt="Affinity Conny" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/affinity-collection-2014/72440-affinity-conny.html"><img src="//static.msromantic.com/170272/affinity-conny.jpg" alt="Affinity Conny" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/affinity-collection-2014/72440-affinity-conny.html"><img src="//static.msromantic.com/170271/affinity-conny.jpg" alt="Affinity Conny" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/affinity-collection-2014/72440-affinity-conny.html](https://www.readybrides.com/en/affinity-collection-2014/72440-affinity-conny.html)
+<!-- break --><a href="https://www.antebrands.com/en/affinity-collection-2014/72440-affinity-conny.html"><img src="//static.msromantic.com/170271/affinity-conny.jpg" alt="Affinity Conny" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/affinity-collection-2014/72440-affinity-conny.html](https://www.antebrands.com/en/affinity-collection-2014/72440-affinity-conny.html)

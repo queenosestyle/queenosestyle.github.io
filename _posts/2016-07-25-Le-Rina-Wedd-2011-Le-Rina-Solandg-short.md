@@ -9,7 +9,7 @@ tags: [Le Rina Wedd 2011]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-2011/73304-le-rina-solandg-short.html"><img src="//static.msromantic.com/172606/le-rina-solandg-short.jpg" alt="Le Rina Solandg short" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-2011/73304-le-rina-solandg-short.html"><img src="//static.msromantic.com/172606/le-rina-solandg-short.jpg" alt="Le Rina Solandg short" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-2011/73304-le-rina-solandg-short.html](https://www.readybrides.com/en/le-rina-wedd-2011/73304-le-rina-solandg-short.html)
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-2011/73304-le-rina-solandg-short.html](https://www.antebrands.com/en/le-rina-wedd-2011/73304-le-rina-solandg-short.html)

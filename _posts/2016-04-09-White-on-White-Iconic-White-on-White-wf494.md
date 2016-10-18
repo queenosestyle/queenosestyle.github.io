@@ -9,7 +9,7 @@ tags: [White on White Iconic]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/white-on-white-iconic/71796-white-on-white-wf494.html"><img src="//static.msromantic.com/168500/white-on-white-wf494.jpg" alt="White on White wf494" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/white-on-white-iconic/71796-white-on-white-wf494.html"><img src="//static.msromantic.com/168500/white-on-white-wf494.jpg" alt="White on White wf494" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/white-on-white-iconic/71796-white-on-white-wf494.html"><img src="//static.msromantic.com/168499/white-on-white-wf494.jpg" alt="White on White wf494" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/white-on-white-iconic/71796-white-on-white-wf494.html](https://www.readybrides.com/en/white-on-white-iconic/71796-white-on-white-wf494.html)
+<!-- break --><a href="https://www.antebrands.com/en/white-on-white-iconic/71796-white-on-white-wf494.html"><img src="//static.msromantic.com/168499/white-on-white-wf494.jpg" alt="White on White wf494" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/white-on-white-iconic/71796-white-on-white-wf494.html](https://www.antebrands.com/en/white-on-white-iconic/71796-white-on-white-wf494.html)

@@ -9,7 +9,7 @@ tags: [Le Rina Child]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-child/73148-le-rina-izabella.html"><img src="//static.msromantic.com/172272/le-rina-izabella.jpg" alt="Le Rina Izabella" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-child/73148-le-rina-izabella.html"><img src="//static.msromantic.com/172272/le-rina-izabella.jpg" alt="Le Rina Izabella" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/le-rina-child/73148-le-rina-izabella.html](https://www.readybrides.com/en/le-rina-child/73148-le-rina-izabella.html)
+Buy it: [https://www.antebrands.com/en/le-rina-child/73148-le-rina-izabella.html](https://www.antebrands.com/en/le-rina-child/73148-le-rina-izabella.html)

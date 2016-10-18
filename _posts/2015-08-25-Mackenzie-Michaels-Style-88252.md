@@ -9,7 +9,7 @@ tags: [Mackenzie Michaels]
 Just **$239.99**
 ### 
 
-<a href="https://www.readybrides.com/en/mackenzie-michaels/71568-mackenzie-michaels-style-88252.html"><img src="//static.msromantic.com/167887/mackenzie-michaels-style-88252.jpg" alt="Mackenzie Michaels Style 88252" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/mackenzie-michaels/71568-mackenzie-michaels-style-88252.html"><img src="//static.msromantic.com/167887/mackenzie-michaels-style-88252.jpg" alt="Mackenzie Michaels Style 88252" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/mackenzie-michaels/71568-mackenzie-michaels-style-88252.html](https://www.readybrides.com/en/mackenzie-michaels/71568-mackenzie-michaels-style-88252.html)
+Buy it: [https://www.antebrands.com/en/mackenzie-michaels/71568-mackenzie-michaels-style-88252.html](https://www.antebrands.com/en/mackenzie-michaels/71568-mackenzie-michaels-style-88252.html)

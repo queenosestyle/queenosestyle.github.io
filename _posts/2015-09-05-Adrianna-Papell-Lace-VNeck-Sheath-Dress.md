@@ -9,7 +9,7 @@ tags: [Adrianna Papell]
 Just **$160.00**
 ### 
 
-<a href="https://www.readybrides.com/en/adrianna-papell/75782-adrianna-papell-lace-v-neck-sheath-dress.html"><img src="//static.msromantic.com/179079/adrianna-papell-lace-v-neck-sheath-dress.jpg" alt="Adrianna Papell Lace V-Neck Sheath Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/adrianna-papell/75782-adrianna-papell-lace-v-neck-sheath-dress.html"><img src="//static.msromantic.com/179079/adrianna-papell-lace-v-neck-sheath-dress.jpg" alt="Adrianna Papell Lace V-Neck Sheath Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/adrianna-papell/75782-adrianna-papell-lace-v-neck-sheath-dress.html"><img src="//static.msromantic.com/179078/adrianna-papell-lace-v-neck-sheath-dress.jpg" alt="Adrianna Papell Lace V-Neck Sheath Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/adrianna-papell/75782-adrianna-papell-lace-v-neck-sheath-dress.html](https://www.readybrides.com/en/adrianna-papell/75782-adrianna-papell-lace-v-neck-sheath-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/adrianna-papell/75782-adrianna-papell-lace-v-neck-sheath-dress.html"><img src="//static.msromantic.com/179078/adrianna-papell-lace-v-neck-sheath-dress.jpg" alt="Adrianna Papell Lace V-Neck Sheath Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/adrianna-papell/75782-adrianna-papell-lace-v-neck-sheath-dress.html](https://www.antebrands.com/en/adrianna-papell/75782-adrianna-papell-lace-v-neck-sheath-dress.html)

@@ -9,7 +9,7 @@ tags: [Le Rina Wedd W2015]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73212-le-rina-viktoriya.html"><img src="//static.msromantic.com/172403/le-rina-viktoriya.jpg" alt="Le Rina Viktoriya" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73212-le-rina-viktoriya.html"><img src="//static.msromantic.com/172403/le-rina-viktoriya.jpg" alt="Le Rina Viktoriya" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/le-rina-wedd-w2015/73212-le-rina-viktoriya.html"><img src="//static.msromantic.com/172402/le-rina-viktoriya.jpg" alt="Le Rina Viktoriya" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/le-rina-wedd-w2015/73212-le-rina-viktoriya.html](https://www.readybrides.com/en/le-rina-wedd-w2015/73212-le-rina-viktoriya.html)
+<!-- break --><a href="https://www.antebrands.com/en/le-rina-wedd-w2015/73212-le-rina-viktoriya.html"><img src="//static.msromantic.com/172402/le-rina-viktoriya.jpg" alt="Le Rina Viktoriya" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/le-rina-wedd-w2015/73212-le-rina-viktoriya.html](https://www.antebrands.com/en/le-rina-wedd-w2015/73212-le-rina-viktoriya.html)

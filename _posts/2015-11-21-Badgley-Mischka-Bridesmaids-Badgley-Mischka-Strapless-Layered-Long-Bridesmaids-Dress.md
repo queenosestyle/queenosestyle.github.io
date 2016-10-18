@@ -9,7 +9,7 @@ tags: [Badgley Mischka Bridesmaids]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/badgley-mischka-bridesmaids/72123-badgley-mischka-strapless-layered-long-bridesmaids-dress.html"><img src="//static.msromantic.com/169329/badgley-mischka-strapless-layered-long-bridesmaids-dress.jpg" alt="Badgley Mischka Strapless Layered Long Bridesmaids Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/badgley-mischka-bridesmaids/72123-badgley-mischka-strapless-layered-long-bridesmaids-dress.html"><img src="//static.msromantic.com/169329/badgley-mischka-strapless-layered-long-bridesmaids-dress.jpg" alt="Badgley Mischka Strapless Layered Long Bridesmaids Dress" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/badgley-mischka-bridesmaids/72123-badgley-mischka-strapless-layered-long-bridesmaids-dress.html](https://www.readybrides.com/en/badgley-mischka-bridesmaids/72123-badgley-mischka-strapless-layered-long-bridesmaids-dress.html)
+Buy it: [https://www.antebrands.com/en/badgley-mischka-bridesmaids/72123-badgley-mischka-strapless-layered-long-bridesmaids-dress.html](https://www.antebrands.com/en/badgley-mischka-bridesmaids/72123-badgley-mischka-strapless-layered-long-bridesmaids-dress.html)

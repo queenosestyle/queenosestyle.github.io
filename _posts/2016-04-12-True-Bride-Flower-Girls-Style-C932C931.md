@@ -9,7 +9,7 @@ tags: [True Bride Flower Girls]
 Just **$169.99**
 ### 
 
-<a href="https://www.readybrides.com/en/true-bride-flower-girls/72733-true-bride-flower-girls-style-c932-c931.html"><img src="//static.msromantic.com/170944/true-bride-flower-girls-style-c932-c931.jpg" alt="True Bride Flower Girls Style C932-C931" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/true-bride-flower-girls/72733-true-bride-flower-girls-style-c932-c931.html"><img src="//static.msromantic.com/170944/true-bride-flower-girls-style-c932-c931.jpg" alt="True Bride Flower Girls Style C932-C931" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/true-bride-flower-girls/72733-true-bride-flower-girls-style-c932-c931.html](https://www.readybrides.com/en/true-bride-flower-girls/72733-true-bride-flower-girls-style-c932-c931.html)
+Buy it: [https://www.antebrands.com/en/true-bride-flower-girls/72733-true-bride-flower-girls-style-c932-c931.html](https://www.antebrands.com/en/true-bride-flower-girls/72733-true-bride-flower-girls-style-c932-c931.html)
