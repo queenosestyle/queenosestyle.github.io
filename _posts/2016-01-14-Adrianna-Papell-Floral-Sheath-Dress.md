@@ -1,0 +1,16 @@
+---
+layout: post
+date: '2016-01-14'
+title: "Adrianna Papell Floral Sheath Dress"
+category: Adrianna Papell
+tags: [Adrianna Papell]
+---
+### Adrianna Papell Floral Sheath Dress
+Just **$130.00**
+###      
+<table><tr><td>BRANDS</td><td>Adrianna Papell</td></tr></table>
+<a href="https://www.readybrides.com/en/adrianna-papell/75649-adrianna-papell-floral-sheath-dress.html"><img src="//img.readybrides.com/178792/adrianna-papell-floral-sheath-dress.jpg" alt="Adrianna Papell Floral Sheath Dress" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/adrianna-papell/75649-adrianna-papell-floral-sheath-dress.html"><img src="//img.readybrides.com/178793/adrianna-papell-floral-sheath-dress.jpg" alt="Adrianna Papell Floral Sheath Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/adrianna-papell/75649-adrianna-papell-floral-sheath-dress.html"><img src="//img.readybrides.com/178791/adrianna-papell-floral-sheath-dress.jpg" alt="Adrianna Papell Floral Sheath Dress" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/adrianna-papell/75649-adrianna-papell-floral-sheath-dress.html](https://www.readybrides.com/en/adrianna-papell/75649-adrianna-papell-floral-sheath-dress.html)
