@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-05-10'
+date: 2017-05-10
 title: "Robert Bullock Bride Jessica"
 category: Robert Bullock Bride
 tags: [Robert Bullock Bride]

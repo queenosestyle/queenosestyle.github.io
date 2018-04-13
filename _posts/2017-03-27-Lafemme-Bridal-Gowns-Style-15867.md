@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-03-27'
+date: 2017-03-27
 title: "Lafemme Bridal Gowns Style 15867"
 category: Lafemme
 tags: [Lafemme]

@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-01-10'
+date: 2017-01-10
 title: "Lafemme Limited Edition Style 22396"
 category: Lafemme
 tags: [Lafemme]
